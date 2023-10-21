@@ -70,7 +70,7 @@ paths:
 
 ## => Post
 ##############################
-## excerpt
+## excerpt 
 excerpt_separator: <!--more-->
 
 ## license
