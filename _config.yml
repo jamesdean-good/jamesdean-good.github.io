@@ -18,9 +18,9 @@
 ##############################
 text_skin: default # "orange" (default), "dark", "forest", "ocean", "chocolate", "orange"
 highlight_theme: default # "default" (default), "tomorrow", "tomorrow-night", "tomorrow-night-eighties", "tomorrow-night-blue", "tomorrow-night-bright"
-url     : https://narse.github.io # the base hostname & protocol for your site e.g. https://www.someone.com
+url     : https://jamesdean-good.github.io # the base hostname & protocol for your site e.g. https://www.someone.com
 baseurl : # does not include hostname
-title   : 상품 구매전 필독
+title   : 상품 가격 리뷰 확인하고 구매하세요
 description: > # this means to ignore newlines until "Language & timezone"
   상품 구매 전 유의사항 안내
 
