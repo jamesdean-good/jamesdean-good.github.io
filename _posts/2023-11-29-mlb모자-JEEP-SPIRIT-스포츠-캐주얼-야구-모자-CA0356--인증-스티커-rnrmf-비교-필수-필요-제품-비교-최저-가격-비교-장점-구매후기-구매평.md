@@ -32,7 +32,8 @@ MLB모자는 자외선 차단, 땀 흡수 등의 기능을 가지고 있어 일�
 
 - 할인율과 원래가격: 즉시할인가 60%  46,800   원
 - 가격: <span style='color:red'>19,800원</span>
-- 리뷰수: 44  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7276969801&traceid=V0-153&itemId=18571001555&vendorItemId=85114170895)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7276969801&traceid=V0-153&itemId=18571001555&vendorItemId=85114170895)
 
 ---
 
@@ -49,7 +50,8 @@ MLB모자는 자외선 차단, 땀 흡수 등의 기능을 가지고 있어 일�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>28,900원</span>
-- 리뷰수: 52  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7350130278&traceid=V0-153&itemId=18912228885&vendorItemId=86039592157)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7350130278&traceid=V0-153&itemId=18912228885&vendorItemId=86039592157)
 
 ---
 
@@ -66,7 +68,8 @@ MLB모자는 자외선 차단, 땀 흡수 등의 기능을 가지고 있어 일�
 
 - 할인율과 원래가격: 61%  85,000   원
 - 가격: <span style='color:red'>21,900원</span>
-- 리뷰수: 7  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7405204807&traceid=V0-153&itemId=19175285127&vendorItemId=86293326282)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7405204807&traceid=V0-153&itemId=19175285127&vendorItemId=86293326282)
 
 ---
 
@@ -83,7 +86,8 @@ MLB모자는 자외선 차단, 땀 흡수 등의 기능을 가지고 있어 일�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>19,800원</span>
-- 리뷰수: 13  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7739089150&traceid=V0-153&itemId=20816603071&vendorItemId=87885407589)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7739089150&traceid=V0-153&itemId=20816603071&vendorItemId=87885407589)
 
 ---
 
@@ -100,7 +104,8 @@ MLB모자는 자외선 차단, 땀 흡수 등의 기능을 가지고 있어 일�
 
 - 할인율과 원래가격: 즉시할인가 35%  169,900   원
 - 가격: <span style='color:red'>13,900원</span>
-- 리뷰수: 326  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7539296920&traceid=V0-153&itemId=19814915716&vendorItemId=86916983727)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7539296920&traceid=V0-153&itemId=19814915716&vendorItemId=86916983727)
 
 ---
 
@@ -117,7 +122,8 @@ MLB모자는 자외선 차단, 땀 흡수 등의 기능을 가지고 있어 일�
 
 - 할인율과 원래가격: 즉시할인가 84%  799,000   원
 - 가격: <span style='color:red'>28,250원</span>
-- 리뷰수: 535  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5172377985&traceid=V0-153&itemId=7139082728&vendorItemId=74102003641)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5172377985&traceid=V0-153&itemId=7139082728&vendorItemId=74102003641)
 
 ---
 
@@ -134,7 +140,8 @@ MLB모자는 자외선 차단, 땀 흡수 등의 기능을 가지고 있어 일�
 
 - 할인율과 원래가격: 60%  80,000   원
 - 가격: <span style='color:red'>35,400원</span>
-- 리뷰수: 21  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6475165724&traceid=V0-153&itemId=14150126303&vendorItemId=71183017543)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6475165724&traceid=V0-153&itemId=14150126303&vendorItemId=71183017543)
 
 ---
 
@@ -151,7 +158,8 @@ MLB모자는 자외선 차단, 땀 흡수 등의 기능을 가지고 있어 일�
 
 - 할인율과 원래가격: 14%  20,900   원
 - 가격: <span style='color:red'>28,900원</span>
-- 리뷰수: 37  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7456240465&traceid=V0-153&itemId=19423604089&vendorItemId=85266547237)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7456240465&traceid=V0-153&itemId=19423604089&vendorItemId=85266547237)
 
 ---
 
@@ -168,7 +176,8 @@ MLB모자는 자외선 차단, 땀 흡수 등의 기능을 가지고 있어 일�
 
 - 할인율과 원래가격: 20%  32,000   원
 - 가격: <span style='color:red'>15,800원</span>
-- 리뷰수: 20  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7576569145&traceid=V0-153&itemId=19991791402&vendorItemId=87089609581)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7576569145&traceid=V0-153&itemId=19991791402&vendorItemId=87089609581)
 
 ---
 
@@ -185,7 +194,8 @@ MLB모자는 자외선 차단, 땀 흡수 등의 기능을 가지고 있어 일�
 
 - 할인율과 원래가격: 즉시할인가 60%  46,800   원
 - 가격: <span style='color:red'>48,300원</span>
-- 리뷰수: 44  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7552691508&traceid=V0-153&itemId=19880579647&vendorItemId=87928391562)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7552691508&traceid=V0-153&itemId=19880579647&vendorItemId=87928391562)
 
 ---
 ## MLB모자 구매 시 주의점

@@ -37,7 +37,8 @@ TV는 문화 교류의 수단으로 활용될 수 있습니다. TV는 다양한 
 
 - 할인율과 원래가격: 18%  329,000   원
 - 가격: <span style='color:red'>5,960,000원</span>
-- 리뷰수: 4608  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7204161803&traceid=V0-153&itemId=19595810393&vendorItemId=86703085420)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7204161803&traceid=V0-153&itemId=19595810393&vendorItemId=86703085420)
 
 ---
 
@@ -54,7 +55,8 @@ TV는 문화 교류의 수단으로 활용될 수 있습니다. TV는 다양한 
 
 - 할인율과 원래가격: 쿠폰할인가 32%  329,000   원
 - 가격: <span style='color:red'>124,030원</span>
-- 리뷰수: 16268  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
 
 ---
 
@@ -71,7 +73,8 @@ TV는 문화 교류의 수단으로 활용될 수 있습니다. TV는 다양한 
 
 - 할인율과 원래가격: 68%  499,000   원
 - 가격: <span style='color:red'>1,067,190원</span>
-- 리뷰수: 2  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159)
 
 ---
 
@@ -88,7 +91,8 @@ TV는 문화 교류의 수단으로 활용될 수 있습니다. TV는 다양한 
 
 - 할인율과 원래가격: 21%  369,000   원
 - 가격: <span style='color:red'>258,720원</span>
-- 리뷰수: 4608  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7478524711&traceid=V0-153&itemId=19529341062&vendorItemId=4111902235)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7478524711&traceid=V0-153&itemId=19529341062&vendorItemId=4111902235)
 
 ---
 
@@ -105,7 +109,8 @@ TV는 문화 교류의 수단으로 활용될 수 있습니다. TV는 다양한 
 
 - 할인율과 원래가격: 즉시할인가 70%  198,000   원
 - 가격: <span style='color:red'>7,186,800원</span>
-- 리뷰수: 712  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7204161803&traceid=V0-153&itemId=19595810395&vendorItemId=86703085433)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7204161803&traceid=V0-153&itemId=19595810395&vendorItemId=86703085433)
 
 ---
 
@@ -122,7 +127,8 @@ TV는 문화 교류의 수단으로 활용될 수 있습니다. TV는 다양한 
 
 - 할인율과 원래가격: 쿠폰할인가 21%  43,000   원
 - 가격: <span style='color:red'>142,500원</span>
-- 리뷰수: 1003  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621158806&traceid=V0-153&itemId=20205910703&vendorItemId=83364147477)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621158806&traceid=V0-153&itemId=20205910703&vendorItemId=83364147477)
 
 ---
 
@@ -139,7 +145,8 @@ TV는 문화 교류의 수단으로 활용될 수 있습니다. TV는 다양한 
 
 - 할인율과 원래가격: 23%  469,000   원
 - 가격: <span style='color:red'>652,800원</span>
-- 리뷰수: 4608  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361431&vendorItemId=85282102119)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361431&vendorItemId=85282102119)
 
 ---
 
@@ -156,7 +163,8 @@ TV는 문화 교류의 수단으로 활용될 수 있습니다. TV는 다양한 
 
 - 할인율과 원래가격: 쿠폰할인가 32%  329,000   원
 - 가격: <span style='color:red'>919,100원</span>
-- 리뷰수: 16268  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361435&vendorItemId=85282102168)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361435&vendorItemId=85282102168)
 
 ---
 
@@ -173,7 +181,8 @@ TV는 문화 교류의 수단으로 활용될 수 있습니다. TV는 다양한 
 
 - 할인율과 원래가격: 77%  199,000   원
 - 가격: <span style='color:red'>2,543,000원</span>
-- 리뷰수: 1366  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7715890639&traceid=V0-153&itemId=20694941678&vendorItemId=87766444207)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7715890639&traceid=V0-153&itemId=20694941678&vendorItemId=87766444207)
 
 ---
 
@@ -190,7 +199,8 @@ TV는 문화 교류의 수단으로 활용될 수 있습니다. TV는 다양한 
 
 - 할인율과 원래가격: 23%  469,000   원
 - 가격: <span style='color:red'>1,300,000원</span>
-- 리뷰수: 4608  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361425&vendorItemId=85282102042)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361425&vendorItemId=85282102042)
 
 ---
 **TV 구매 시 주의점**

@@ -43,7 +43,8 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 - 할인율과 원래가격: 18%  329,000   원
 - 가격: <span style='color:red'>26,220원</span>
-- 리뷰수: 4608  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63171192&traceid=V0-153&itemId=215197459&vendorItemId=3518019431)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63171192&traceid=V0-153&itemId=215197459&vendorItemId=3518019431)
 
 ---
 
@@ -60,7 +61,8 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 - 할인율과 원래가격: 쿠폰할인가 32%  329,000   원
 - 가격: <span style='color:red'>72,260원</span>
-- 리뷰수: 16268  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=9127701173&vendorItemId=76413743812)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=9127701173&vendorItemId=76413743812)
 
 ---
 
@@ -77,7 +79,8 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 - 할인율과 원래가격: 68%  499,000   원
 - 가격: <span style='color:red'>113,000원</span>
-- 리뷰수: 2  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 ---
 
@@ -94,7 +97,8 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 - 할인율과 원래가격: 21%  369,000   원
 - 가격: <span style='color:red'>191,400원</span>
-- 리뷰수: 4608  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234)
 
 ---
 
@@ -111,7 +115,8 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 - 할인율과 원래가격: 즉시할인가 70%  198,000   원
 - 가격: <span style='color:red'>149,000원</span>
-- 리뷰수: 712  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6838183257&traceid=V0-153&itemId=16252863086&vendorItemId=83446015557)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6838183257&traceid=V0-153&itemId=16252863086&vendorItemId=83446015557)
 
 ---
 
@@ -128,7 +133,8 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 - 할인율과 원래가격: 쿠폰할인가 21%  43,000   원
 - 가격: <span style='color:red'>20,000원</span>
-- 리뷰수: 1003  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6608537108&traceid=V0-153&itemId=14974780778&vendorItemId=82197907062)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6608537108&traceid=V0-153&itemId=14974780778&vendorItemId=82197907062)
 
 ---
 
@@ -145,7 +151,8 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 - 할인율과 원래가격: 23%  469,000   원
 - 가격: <span style='color:red'>63,250원</span>
-- 리뷰수: 4608  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 ---
 
@@ -162,7 +169,8 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 - 할인율과 원래가격: 쿠폰할인가 32%  329,000   원
 - 가격: <span style='color:red'>88,100원</span>
-- 리뷰수: 16268  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 ---
 
@@ -179,7 +187,8 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 - 할인율과 원래가격: 77%  199,000   원
 - 가격: <span style='color:red'>184,900원</span>
-- 리뷰수: 1366  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=648631446&vendorItemId=4686502604)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=648631446&vendorItemId=4686502604)
 
 ---
 
@@ -196,7 +205,8 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 - 할인율과 원래가격: 23%  469,000   원
 - 가격: <span style='color:red'>74,630원</span>
-- 리뷰수: 4608  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=82998196838)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=82998196838)
 
 ---
 **SSD 구매 시 주의점**

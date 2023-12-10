@@ -46,7 +46,8 @@ ANC 기능은 외부 소음을 차단하여 음악 감상이나 통화를 더욱
 
 - 할인율과 원래가격: 24%  329,000   원
 - 가격: <span style='color:red'>28,900원</span>
-- 리뷰수: 4855  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6577822503&traceid=V0-153&itemId=14790109733&vendorItemId=82676212615)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6577822503&traceid=V0-153&itemId=14790109733&vendorItemId=82676212615)
 
 ---
 
@@ -63,7 +64,8 @@ ANC 기능은 외부 소음을 차단하여 음악 감상이나 통화를 더욱
 
 - 할인율과 원래가격: 23%  369,000   원
 - 가격: <span style='color:red'>38,900원</span>
-- 리뷰수: 4855  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7714597360&traceid=V0-153&itemId=20688198860&vendorItemId=87759876664)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7714597360&traceid=V0-153&itemId=20688198860&vendorItemId=87759876664)
 
 ---
 
@@ -80,7 +82,8 @@ ANC 기능은 외부 소음을 차단하여 음악 감상이나 통화를 더욱
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>22,190원</span>
-- 리뷰수: 922  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6572373138&traceid=V0-153&itemId=14758141683&vendorItemId=78636438577)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6572373138&traceid=V0-153&itemId=14758141683&vendorItemId=78636438577)
 
 ---
 
@@ -97,7 +100,8 @@ ANC 기능은 외부 소음을 차단하여 음악 감상이나 통화를 더욱
 
 - 할인율과 원래가격: 22%  329,000   원
 - 가격: <span style='color:red'>41,250원</span>
-- 리뷰수: 16335  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7299891765&traceid=V0-153&itemId=18677797570&vendorItemId=86379224603)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7299891765&traceid=V0-153&itemId=18677797570&vendorItemId=86379224603)
 
 ---
 
@@ -114,7 +118,8 @@ ANC 기능은 외부 소음을 차단하여 음악 감상이나 통화를 더욱
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>108,900원</span>
-- 리뷰수: 922  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5526336113&traceid=V0-153&itemId=8658996857&vendorItemId=75946178928)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5526336113&traceid=V0-153&itemId=8658996857&vendorItemId=75946178928)
 
 ---
 
@@ -131,7 +136,8 @@ ANC 기능은 외부 소음을 차단하여 음악 감상이나 통화를 더욱
 
 - 할인율과 원래가격: 즉시할인가 70%  198,000   원
 - 가격: <span style='color:red'>66,500원</span>
-- 리뷰수: 717  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7635125424&traceid=V0-153&itemId=20272675468&vendorItemId=86293905146)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7635125424&traceid=V0-153&itemId=20272675468&vendorItemId=86293905146)
 
 ---
 
@@ -148,7 +154,8 @@ ANC 기능은 외부 소음을 차단하여 음악 감상이나 통화를 더욱
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>28,900원</span>
-- 리뷰수: 4855  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6577822503&traceid=V0-153&itemId=14790109733&vendorItemId=82676212615)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6577822503&traceid=V0-153&itemId=14790109733&vendorItemId=82676212615)
 
 ---
 
@@ -165,7 +172,8 @@ ANC 기능은 외부 소음을 차단하여 음악 감상이나 통화를 더욱
 
 - 할인율과 원래가격: 30%  329,000   원
 - 가격: <span style='color:red'>41,050원</span>
-- 리뷰수: 16335  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7643802914&traceid=V0-153&itemId=20318655509&vendorItemId=87315024354)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7643802914&traceid=V0-153&itemId=20318655509&vendorItemId=87315024354)
 
 ---
 
@@ -182,7 +190,8 @@ ANC 기능은 외부 소음을 차단하여 음악 감상이나 통화를 더욱
 
 - 할인율과 원래가격: 4%  49,800   원
 - 가격: <span style='color:red'>28,900원</span>
-- 리뷰수: 998  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6577822503&traceid=V0-153&itemId=19063225805&vendorItemId=86185488509)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6577822503&traceid=V0-153&itemId=19063225805&vendorItemId=86185488509)
 
 ---
 
@@ -199,7 +208,8 @@ ANC 기능은 외부 소음을 차단하여 음악 감상이나 통화를 더욱
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>95,000원</span>
-- 리뷰수: 4855  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7000607828&traceid=V0-153&itemId=10910028228&vendorItemId=78480572960)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7000607828&traceid=V0-153&itemId=10910028228&vendorItemId=78480572960)
 
 ---
 **블루투스 이어폰 구매 시 주의점**

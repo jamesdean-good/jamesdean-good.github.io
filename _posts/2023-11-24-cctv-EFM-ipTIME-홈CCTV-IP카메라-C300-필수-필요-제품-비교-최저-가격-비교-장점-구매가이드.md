@@ -51,7 +51,8 @@ CCTV는 경찰력의 효율화를 돕습니다. CCTV에 촬영된 영상은 경�
 
 - 할인율과 원래가격: 33%  24,000   원
 - 가격: <span style='color:red'>38,710원</span>
-- 리뷰수: 27  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6778317625&traceid=V0-153&itemId=15932873252&vendorItemId=83139854855)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6778317625&traceid=V0-153&itemId=15932873252&vendorItemId=83139854855)
 
 ---
 
@@ -68,7 +69,8 @@ CCTV는 경찰력의 효율화를 돕습니다. CCTV에 촬영된 영상은 경�
 
 - 할인율과 원래가격: 4%  20,000   원
 - 가격: <span style='color:red'>31,800원</span>
-- 리뷰수: 679  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1257342889&traceid=V0-153&itemId=2258105672&vendorItemId=70255414258)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1257342889&traceid=V0-153&itemId=2258105672&vendorItemId=70255414258)
 
 ---
 
@@ -85,7 +87,8 @@ CCTV는 경찰력의 효율화를 돕습니다. CCTV에 촬영된 영상은 경�
 
 - 할인율과 원래가격: 33%  16,800   원
 - 가격: <span style='color:red'>35,900원</span>
-- 리뷰수: 7  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7675548875&traceid=V0-153&itemId=20487400665&vendorItemId=76697702968)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7675548875&traceid=V0-153&itemId=20487400665&vendorItemId=76697702968)
 
 ---
 
@@ -102,7 +105,8 @@ CCTV는 경찰력의 효율화를 돕습니다. CCTV에 촬영된 영상은 경�
 
 - 할인율과 원래가격: 17%  23,500   원
 - 가격: <span style='color:red'>53,820원</span>
-- 리뷰수: 203  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7660655062&traceid=V0-153&itemId=20408322676&vendorItemId=78701985939)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7660655062&traceid=V0-153&itemId=20408322676&vendorItemId=78701985939)
 
 ---
 
@@ -119,7 +123,8 @@ CCTV는 경찰력의 효율화를 돕습니다. CCTV에 촬영된 영상은 경�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>108,000원</span>
-- 리뷰수: 0  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7684810823&traceid=V0-153&itemId=20534266636&vendorItemId=87552209271)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7684810823&traceid=V0-153&itemId=20534266636&vendorItemId=87552209271)
 
 ---
 
@@ -136,7 +141,8 @@ CCTV는 경찰력의 효율화를 돕습니다. CCTV에 촬영된 영상은 경�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>129,000원</span>
-- 리뷰수: 136  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7503593343&traceid=V0-153&itemId=19950768535&vendorItemId=86752531752)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7503593343&traceid=V0-153&itemId=19950768535&vendorItemId=86752531752)
 
 ---
 
@@ -153,7 +159,8 @@ CCTV는 경찰력의 효율화를 돕습니다. CCTV에 촬영된 영상은 경�
 
 - 할인율과 원래가격: 1%  14,920   원
 - 가격: <span style='color:red'>33,800원</span>
-- 리뷰수: 38  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6802019069&traceid=V0-153&itemId=16059429971&vendorItemId=83262760675)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6802019069&traceid=V0-153&itemId=16059429971&vendorItemId=83262760675)
 
 ---
 
@@ -170,7 +177,8 @@ CCTV는 경찰력의 효율화를 돕습니다. CCTV에 촬영된 영상은 경�
 
 - 할인율과 원래가격: 즉시할인가 47%  28,900   원
 - 가격: <span style='color:red'>32,280원</span>
-- 리뷰수: 1  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5690404327&traceid=V0-153&itemId=9420913591&vendorItemId=76705859951)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5690404327&traceid=V0-153&itemId=9420913591&vendorItemId=76705859951)
 
 ---
 
@@ -187,7 +195,8 @@ CCTV는 경찰력의 효율화를 돕습니다. CCTV에 촬영된 영상은 경�
 
 - 할인율과 원래가격: 쿠폰할인가 16%  17,980   원
 - 가격: <span style='color:red'>216,810원</span>
-- 리뷰수: 107  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7090070818&traceid=V0-153&itemId=17665194704&vendorItemId=84830628868)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7090070818&traceid=V0-153&itemId=17665194704&vendorItemId=84830628868)
 
 ---
 
@@ -204,7 +213,8 @@ CCTV는 경찰력의 효율화를 돕습니다. CCTV에 촬영된 영상은 경�
 
 - 할인율과 원래가격: 11%  8,890   원
 - 가격: <span style='color:red'>256,890원</span>
-- 리뷰수: 72  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6145020630&traceid=V0-153&itemId=11818664618&vendorItemId=79092158487)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6145020630&traceid=V0-153&itemId=11818664618&vendorItemId=79092158487)
 
 ---
 **CCTV 구매 시 주의점**
