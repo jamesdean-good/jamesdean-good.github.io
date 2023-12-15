@@ -37,7 +37,7 @@ pin: true
 
 ## 1. 씨게이트 ONE TOUCH 외장하드 + 파우치, 2TB, 블랙
 
-![외장하드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4280292427481331-04886703-fc02-43df-bb30-437b669b9bd3.jpg)
+[![외장하드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4280292427481331-04886703-fc02-43df-bb30-437b669b9bd3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=12451172088&vendorItemId=4686504333)
 
 
 👍 [씨게이트 ONE TOUCH 외장하드 + 파우치, 2TB, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=12451172088&vendorItemId=4686504333) 👌 
@@ -55,7 +55,7 @@ pin: true
 
 ## 2. 씨게이트 ONE TOUCH 외장하드 + 파우치, 2TB, 블랙
 
-![외장하드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4280292427481331-04886703-fc02-43df-bb30-437b669b9bd3.jpg)
+[![외장하드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4280292427481331-04886703-fc02-43df-bb30-437b669b9bd3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=12451172088&vendorItemId=4686504333)
 
 
 👍 [씨게이트 ONE TOUCH 외장하드 + 파우치, 2TB, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=12451172088&vendorItemId=4686504333) 👌 
@@ -73,7 +73,7 @@ pin: true
 
 ## 3. 비잽 외장하드 USB3.0 BZ33, 1TB, 화이트
 
-![외장하드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2270947233922808-10e745ff-93fa-4982-a692-fc18412c3f6c.jpg)
+[![외장하드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2270947233922808-10e745ff-93fa-4982-a692-fc18412c3f6c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=173252633&traceid=V0-153&itemId=494906269&vendorItemId=4096250500)
 
 
 👍 [비잽 외장하드 USB3.0 BZ33, 1TB, 화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=173252633&traceid=V0-153&itemId=494906269&vendorItemId=4096250500) 👌 
@@ -91,7 +91,7 @@ pin: true
 
 ## 4. WD Elements Portable 휴대용 외장하드 + 파우치, 1TB, 블랙
 
-![외장하드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2544147278710326-d1a8afb4-7e1a-43c4-ade2-dbd846ba973b.jpg)
+[![외장하드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2544147278710326-d1a8afb4-7e1a-43c4-ade2-dbd846ba973b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=25271683&traceid=V0-153&itemId=98239780&vendorItemId=3179136993)
 
 
 👍 [WD Elements Portable 휴대용 외장하드 + 파우치, 1TB, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=25271683&traceid=V0-153&itemId=98239780&vendorItemId=3179136993) 👌 
@@ -109,7 +109,7 @@ pin: true
 
 ## 5. 에이데이타 외장하드 HV320 2TB, 블루
 
-![외장하드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3506935589679716-2249c90d-000d-41a0-aa22-6e494e4125c4.jpg)
+[![외장하드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3506935589679716-2249c90d-000d-41a0-aa22-6e494e4125c4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1925951860&traceid=V0-153&itemId=3269541376&vendorItemId=71256563036)
 
 
 👍 [에이데이타 외장하드 HV320 2TB, 블루 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1925951860&traceid=V0-153&itemId=3269541376&vendorItemId=71256563036) 👌 
@@ -127,7 +127,7 @@ pin: true
 
 ## 6. 하이크비전 외장하드 T30 + 실리콘 커버, 블루, 2TB
 
-![외장하드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1144743236212647-9e4c0698-2f26-40b1-8ba0-b18c1c14fe2f.jpg)
+[![외장하드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1144743236212647-9e4c0698-2f26-40b1-8ba0-b18c1c14fe2f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6899342571&traceid=V0-153&itemId=16588746490&vendorItemId=83773881753)
 
 
 👍 [하이크비전 외장하드 T30 + 실리콘 커버, 블루, 2TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6899342571&traceid=V0-153&itemId=16588746490&vendorItemId=83773881753) 👌 
@@ -145,7 +145,7 @@ pin: true
 
 ## 7. 삼성전자 외장하드 J3 + 파우치, 2048GB, 블랙
 
-![외장하드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/447726238412214-7c44d7ec-0eff-431b-98b1-f8001d774329.jpg)
+[![외장하드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/447726238412214-7c44d7ec-0eff-431b-98b1-f8001d774329.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=14820708&traceid=V0-153&itemId=61155508&vendorItemId=3095674310)
 
 
 👍 [삼성전자 외장하드 J3 + 파우치, 2048GB, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=14820708&traceid=V0-153&itemId=61155508&vendorItemId=3095674310) 👌 
@@ -163,7 +163,7 @@ pin: true
 
 ## 8. 삼성전자 외장하드 J3 + 파우치, 2048GB, 화이트
 
-![외장하드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/700d/977387ac6367984cd2d3be560868294c1af1665133982133979ee6d59599.jpg)
+[![외장하드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/700d/977387ac6367984cd2d3be560868294c1af1665133982133979ee6d59599.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=14820708&traceid=V0-153&itemId=61155513&vendorItemId=84688045402)
 
 
 👍 [삼성전자 외장하드 J3 + 파우치, 2048GB, 화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=14820708&traceid=V0-153&itemId=61155513&vendorItemId=84688045402) 👌 
@@ -181,7 +181,7 @@ pin: true
 
 ## 9. WD Black P10 휴대용 외장하드, 블랙, 2TB
 
-![외장하드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2019/10/29/19/1/3723da5e-0ddb-4c01-b8ae-919ed2a67b26.jpg)
+[![외장하드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2019/10/29/19/1/3723da5e-0ddb-4c01-b8ae-919ed2a67b26.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7679636056&traceid=V0-153&itemId=1062954995&vendorItemId=5543321049)
 
 
 👍 [WD Black P10 휴대용 외장하드, 블랙, 2TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7679636056&traceid=V0-153&itemId=1062954995&vendorItemId=5543321049) 👌 
@@ -199,7 +199,7 @@ pin: true
 
 ## 10. WD Elements Portable 휴대용 외장하드 + 파우치, 5TB, 블랙
 
-![외장하드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1322323869538366-24247370-3cd8-4d7d-90b9-becf4091e564.png)
+[![외장하드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1322323869538366-24247370-3cd8-4d7d-90b9-becf4091e564.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=25271683&traceid=V0-153&itemId=2023304524&vendorItemId=70022949256)
 
 
 👍 [WD Elements Portable 휴대용 외장하드 + 파우치, 5TB, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=25271683&traceid=V0-153&itemId=2023304524&vendorItemId=70022949256) 👌 

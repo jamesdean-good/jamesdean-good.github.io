@@ -29,7 +29,7 @@ pin: true
 
 ## 1. 진드기차단 매트리스 방수커버 S/SS/D/Q/K 8 Size 모음
 
-![매트리스커버 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/344f/79d70f70567cba7322ca28d63ac282ef9a3a45f3622fd65e272bc97db7f0.jpg)
+[![매트리스커버 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/344f/79d70f70567cba7322ca28d63ac282ef9a3a45f3622fd65e272bc97db7f0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1082850674&traceid=V0-153&itemId=2036031430&vendorItemId=70035451971)
 
 
 👍 [진드기차단 매트리스 방수커버 S/SS/D/Q/K 8 Size 모음 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1082850674&traceid=V0-153&itemId=2036031430&vendorItemId=70035451971) 👌 
@@ -47,7 +47,7 @@ pin: true
 
 ## 2. 보드래 퍼펙트 누빔 매트리스커버
 
-![매트리스커버 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/9009383787954264-74c3fa9e-5843-4cee-8dc3-e204133b5da5.jpg)
+[![매트리스커버 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/9009383787954264-74c3fa9e-5843-4cee-8dc3-e204133b5da5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=40721806&traceid=V0-153&itemId=148954016&vendorItemId=3337738959)
 
 
 👍 [보드래 퍼펙트 누빔 매트리스커버 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=40721806&traceid=V0-153&itemId=148954016&vendorItemId=3337738959) 👌 
@@ -65,7 +65,7 @@ pin: true
 
 ## 3. 코멧 홈 프리미엄 방수 매트리스 커버
 
-![매트리스커버 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/681471480754163-47bfbfd0-2064-4dc8-b2a8-fe6052d891c8.jpg)
+[![매트리스커버 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/681471480754163-47bfbfd0-2064-4dc8-b2a8-fe6052d891c8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1074277210&traceid=V0-153&itemId=2023718449&vendorItemId=70023351795)
 
 
 👍 [코멧 홈 프리미엄 방수 매트리스 커버 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1074277210&traceid=V0-153&itemId=2023718449&vendorItemId=70023351795) 👌 
@@ -83,7 +83,7 @@ pin: true
 
 ## 4. 아망떼 베이직 소프트 누빔매트커버
 
-![매트리스커버 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/02/01/17/0/b10d5668-c3fa-4eac-a07d-71d0ffbe7d8f.jpg)
+[![매트리스커버 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/02/01/17/0/b10d5668-c3fa-4eac-a07d-71d0ffbe7d8f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7105130844&traceid=V0-153&itemId=17745982094&vendorItemId=84910557914)
 
 
 👍 [아망떼 베이직 소프트 누빔매트커버 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7105130844&traceid=V0-153&itemId=17745982094&vendorItemId=84910557914) 👌 
@@ -101,7 +101,7 @@ pin: true
 
 ## 5. 프랑떼 방수 매트리스커버
 
-![매트리스커버 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4470297083464617-8f4ae16d-be40-45c4-9cb5-3903ea222187.jpg)
+[![매트리스커버 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4470297083464617-8f4ae16d-be40-45c4-9cb5-3903ea222187.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=141485986&traceid=V0-153&itemId=412054627&vendorItemId=4010677394)
 
 
 👍 [프랑떼 방수 매트리스커버 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=141485986&traceid=V0-153&itemId=412054627&vendorItemId=4010677394) 👌 
@@ -119,7 +119,7 @@ pin: true
 
 ## 6. 먼지없는 마이크로화이버 매트리스커버 누빔 홑
 
-![매트리스커버 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f2c4/bbb5a2b49b0e2d5f970a54049464872d9a15f02e0f0a5f0c75beba1542eb.jpg)
+[![매트리스커버 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f2c4/bbb5a2b49b0e2d5f970a54049464872d9a15f02e0f0a5f0c75beba1542eb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7263520145&traceid=V0-153&itemId=18506798036&vendorItemId=79689184539)
 
 
 👍 [먼지없는 마이크로화이버 매트리스커버 누빔 홑 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7263520145&traceid=V0-153&itemId=18506798036&vendorItemId=79689184539) 👌 
@@ -137,7 +137,7 @@ pin: true
 
 ## 7. 더자리 데일리 프레쉬 누빔 침대패드 고정밴드형, 밀키차콜그레이
 
-![매트리스커버 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/6756689710867892-9a0b9466-f9e2-4545-b0eb-526e6e6a48a0.jpg)
+[![매트리스커버 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/6756689710867892-9a0b9466-f9e2-4545-b0eb-526e6e6a48a0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=284748034&traceid=V0-153&itemId=801783548&vendorItemId=5264374547)
 
 
 👍 [더자리 데일리 프레쉬 누빔 침대패드 고정밴드형, 밀키차콜그레이 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=284748034&traceid=V0-153&itemId=801783548&vendorItemId=5264374547) 👌 
@@ -155,7 +155,7 @@ pin: true
 
 ## 8. 라몬떼 코지 두툼하고 푹신한 토퍼형 매트리스 커버
 
-![매트리스커버 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/6857181760458111-4dcf2882-cc6c-4889-a52b-51d3f845f8cd.jpg)
+[![매트리스커버 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/6857181760458111-4dcf2882-cc6c-4889-a52b-51d3f845f8cd.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6397767513&traceid=V0-153&itemId=13668057538&vendorItemId=80920151709)
 
 
 👍 [라몬떼 코지 두툼하고 푹신한 토퍼형 매트리스 커버 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6397767513&traceid=V0-153&itemId=13668057538&vendorItemId=80920151709) 👌 
@@ -173,7 +173,7 @@ pin: true
 
 ## 9. 프로텍트어베드 문나잇 슬립 방수 매트리스 커버
 
-![매트리스커버 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/895869958268666-bf502ebb-3452-4274-b4d0-8ab3f03fa6cf.jpg)
+[![매트리스커버 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/895869958268666-bf502ebb-3452-4274-b4d0-8ab3f03fa6cf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6122157152&traceid=V0-153&itemId=17655207140&vendorItemId=84820752269)
 
 
 👍 [프로텍트어베드 문나잇 슬립 방수 매트리스 커버 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6122157152&traceid=V0-153&itemId=17655207140&vendorItemId=84820752269) 👌 
@@ -191,7 +191,7 @@ pin: true
 
 ## 10. [5%할인/BEST] 믹스앤매치 카이 항균 먼지없는 홑 매트리스커버 (S/SS/Q/K)
 
-![매트리스커버 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/49ea/208136a0508ea30c781467db23afbc4ec847903d032cd46a33cc127e82ed.jpg)
+[![매트리스커버 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/49ea/208136a0508ea30c781467db23afbc4ec847903d032cd46a33cc127e82ed.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7166906382&traceid=V0-153&itemId=18047508924&vendorItemId=84836893353)
 
 
 👍 [[5%할인/BEST] 믹스앤매치 카이 항균 먼지없는 홑 매트리스커버 (S/SS/Q/K) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7166906382&traceid=V0-153&itemId=18047508924&vendorItemId=84836893353) 👌 

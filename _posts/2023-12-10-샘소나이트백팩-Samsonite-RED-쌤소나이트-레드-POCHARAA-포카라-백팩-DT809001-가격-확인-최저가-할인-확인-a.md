@@ -20,7 +20,7 @@ pin: true
 
 ## 1. [Samsonite RED] 쌤소나이트 레드 POCHARAA 포카라 백팩 (DT809001)
 
-![샘소나이트백팩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7894/6d17c57ef1423ee1f8a9753224df70c3cd83ec6e3303741df4ddb29b1626.jpg)
+[![샘소나이트백팩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7894/6d17c57ef1423ee1f8a9753224df70c3cd83ec6e3303741df4ddb29b1626.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7294421018&traceid=V0-153&itemId=18651145814&vendorItemId=85786003541)
 
 
 👍 [[Samsonite RED] 쌤소나이트 레드 POCHARAA 포카라 백팩 (DT809001) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7294421018&traceid=V0-153&itemId=18651145814&vendorItemId=85786003541) 👌 
@@ -39,7 +39,7 @@ pin: true
 
 ## 2. 쌤소나이트레드 DEWEE 백팩
 
-![샘소나이트백팩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3991595073209-2f1950b0-c66b-4b17-bfc0-3ca75bade35c.jpg)
+[![샘소나이트백팩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3991595073209-2f1950b0-c66b-4b17-bfc0-3ca75bade35c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4841309135&traceid=V0-153&itemId=6257155120&vendorItemId=73450103187)
 
 
 👍 [쌤소나이트레드 DEWEE 백팩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4841309135&traceid=V0-153&itemId=6257155120&vendorItemId=73450103187) 👌 
@@ -58,7 +58,7 @@ pin: true
 
 ## 3. 쌤소나이트레드 HARAM 백팩
 
-![샘소나이트백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/56149634747594-fca524ad-27f2-4864-a45b-662e8c777857.jpg)
+[![샘소나이트백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/56149634747594-fca524ad-27f2-4864-a45b-662e8c777857.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1224214237&traceid=V0-153&itemId=2215790736&vendorItemId=72797889961)
 
 
 👍 [쌤소나이트레드 HARAM 백팩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1224214237&traceid=V0-153&itemId=2215790736&vendorItemId=72797889961) 👌 
@@ -77,7 +77,7 @@ pin: true
 
 ## 4. 아메리칸투어리스터 스콜라 백팩2 AG009002
 
-![샘소나이트백팩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2017/09/25/3122733098/b0cb1a57-6bed-4520-8457-790c14dc9e75.jpg)
+[![샘소나이트백팩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2017/09/25/3122733098/b0cb1a57-6bed-4520-8457-790c14dc9e75.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4564069497&traceid=V0-153&itemId=5564366848&vendorItemId=4467086598)
 
 
 👍 [아메리칸투어리스터 스콜라 백팩2 AG009002 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4564069497&traceid=V0-153&itemId=5564366848&vendorItemId=4467086598) 👌 
@@ -96,7 +96,7 @@ pin: true
 
 ## 5. [맨백] 대용량 백팩 여행용 출장용 노트북 배낭 TGN427A
 
-![샘소나이트백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/116b/6e077214c12c4d949f4216a9aad4ed6be60c79fa34218c9c571f1fa05905.jpg)
+[![샘소나이트백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/116b/6e077214c12c4d949f4216a9aad4ed6be60c79fa34218c9c571f1fa05905.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7680320530&traceid=V0-153&itemId=20512210757&vendorItemId=87589848661)
 
 
 👍 [[맨백] 대용량 백팩 여행용 출장용 노트북 배낭 TGN427A <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7680320530&traceid=V0-153&itemId=20512210757&vendorItemId=87589848661) 👌 
@@ -115,7 +115,7 @@ pin: true
 
 ## 6. 스위스톤 직장인 노트북 대용량 백팩 비즈니스 출장용 가방 ST3A15
 
-![샘소나이트백팩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3e18/cbf16e9d1d62b0ed4375ebb6b451f3e5f8119b31218a31fd771166f250a7.jpg)
+[![샘소나이트백팩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3e18/cbf16e9d1d62b0ed4375ebb6b451f3e5f8119b31218a31fd771166f250a7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7175059657&traceid=V0-153&itemId=18084453598&vendorItemId=85237220377)
 
 
 👍 [스위스톤 직장인 노트북 대용량 백팩 비즈니스 출장용 가방 ST3A15 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7175059657&traceid=V0-153&itemId=18084453598&vendorItemId=85237220377) 👌 
@@ -134,7 +134,7 @@ pin: true
 
 ## 7. 쌤소나이트레드 IKLEN 백팩 HS8-09001
 
-![샘소나이트백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/40c5/a9c5ec809823a2e41a853ad30fbf3f5a248ac919553a7418e102f242c199.png)
+[![샘소나이트백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/40c5/a9c5ec809823a2e41a853ad30fbf3f5a248ac919553a7418e102f242c199.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7550178564&traceid=V0-153&itemId=19868112030&vendorItemId=87960034420)
 
 
 👍 [쌤소나이트레드 IKLEN 백팩 HS8-09001 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7550178564&traceid=V0-153&itemId=19868112030&vendorItemId=87960034420) 👌 
@@ -153,7 +153,7 @@ pin: true
 
 ## 8. 쌤소나이트 RED 백팩 BLACK QK4-09001
 
-![샘소나이트백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1ed8/4fe21fa5f2d2643c24baa2b2507b3582b079dc098455f8fffcffa76b1bfc.jpeg)
+[![샘소나이트백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1ed8/4fe21fa5f2d2643c24baa2b2507b3582b079dc098455f8fffcffa76b1bfc.jpeg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7731485165&traceid=V0-153&itemId=20777135598&vendorItemId=87914905293)
 
 
 👍 [쌤소나이트 RED 백팩 BLACK QK4-09001 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7731485165&traceid=V0-153&itemId=20777135598&vendorItemId=87914905293) 👌 
@@ -172,7 +172,7 @@ pin: true
 
 ## 9. 엑스디디자인 직장인 기능성 노트북 백팩 바비비즈 블랙
 
-![샘소나이트백팩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/378d/a459613b2b96a615cb304ba546f15a3c2b5bbb7525d583d2265286b37358.jpg)
+[![샘소나이트백팩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/378d/a459613b2b96a615cb304ba546f15a3c2b5bbb7525d583d2265286b37358.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4774130404&traceid=V0-153&itemId=6097944334&vendorItemId=73394287120)
 
 
 👍 [엑스디디자인 직장인 기능성 노트북 백팩 바비비즈 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4774130404&traceid=V0-153&itemId=6097944334&vendorItemId=73394287120) 👌 
@@ -191,7 +191,7 @@ pin: true
 
 ## 10. 쌤소나이트레드 Airette 백팩
 
-![샘소나이트백팩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/332006346321541-6c00d5c1-0688-47d5-8f5d-d16f942d54f1.jpg)
+[![샘소나이트백팩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/332006346321541-6c00d5c1-0688-47d5-8f5d-d16f942d54f1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4923212025&traceid=V0-153&itemId=6454441992&vendorItemId=73549050944)
 
 
 👍 [쌤소나이트레드 Airette 백팩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4923212025&traceid=V0-153&itemId=6454441992&vendorItemId=73549050944) 👌 

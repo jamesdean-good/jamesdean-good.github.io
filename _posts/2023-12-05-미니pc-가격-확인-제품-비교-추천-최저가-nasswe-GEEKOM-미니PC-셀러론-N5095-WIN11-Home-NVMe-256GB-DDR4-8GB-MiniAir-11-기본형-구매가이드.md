@@ -31,7 +31,7 @@ pin: true
 
 ## 1. GEEKOM 미니PC 셀러론 N5095 WIN11 Home NVMe 256GB DDR4 8GB, MiniAir 11, 기본형
 
-![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/08/28/15/6/3bc00412-7d0c-4166-a838-12c218e2f14c.jpg)
+[![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/08/28/15/6/3bc00412-7d0c-4166-a838-12c218e2f14c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7558809531&traceid=V0-153&itemId=19909276495&vendorItemId=87009218652)
 
 
 👍 [GEEKOM 미니PC 셀러론 N5095 WIN11 Home NVMe 256GB DDR4 8GB, MiniAir 11, 기본형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7558809531&traceid=V0-153&itemId=19909276495&vendorItemId=87009218652) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. 한손컴 미니 PC 컴퓨터 본체 사무용 초소형 소형 MINI 피씨 데스크탑 올인원 win11, 8GB, 128GB, 11세대 N5105
 
-![미니pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e4f0/eff3428a149cf529be72b8ed4406022a16f25ffd360273d1fe5172067c34.jpg)
+[![미니pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e4f0/eff3428a149cf529be72b8ed4406022a16f25ffd360273d1fe5172067c34.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685504231&traceid=V0-153&itemId=20537606699&vendorItemId=87835921885)
 
 
 👍 [한손컴 미니 PC 컴퓨터 본체 사무용 초소형 소형 MINI 피씨 데스크탑 올인원 win11, 8GB, 128GB, 11세대 N5105 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685504231&traceid=V0-153&itemId=20537606699&vendorItemId=87835921885) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. 갓성비 초소형 미니PC i3 사무용 가정용 컴퓨터 본체 루컴즈 데스크탑 윈도우10, 기본형
 
-![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ac44/c80f849175d69965af33f0f36df84a0d938228f56b808b6e5d6610bc148d.jpg)
+[![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ac44/c80f849175d69965af33f0f36df84a0d938228f56b808b6e5d6610bc148d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7500550593&traceid=V0-153&itemId=19633347714&vendorItemId=86739730159)
 
 
 👍 [갓성비 초소형 미니PC i3 사무용 가정용 컴퓨터 본체 루컴즈 데스크탑 윈도우10, 기본형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7500550593&traceid=V0-153&itemId=19633347714&vendorItemId=86739730159) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 델 미니PC WIN10 인텔 I5 8세대 MINIPC 데스크탑 미니 본체 3060Micro, RAM 8GB + SSD 256GB
 
-![미니pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c19d/4f2d86a5a1c8692f362b5bd92d1201cf616a5221fdd590a25c7d3e7d7ae9.jpg)
+[![미니pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c19d/4f2d86a5a1c8692f362b5bd92d1201cf616a5221fdd590a25c7d3e7d7ae9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7694979717&traceid=V0-153&itemId=20587054305&vendorItemId=87661980254)
 
 
 👍 [델 미니PC WIN10 인텔 I5 8세대 MINIPC 데스크탑 미니 본체 3060Micro, RAM 8GB + SSD 256GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7694979717&traceid=V0-153&itemId=20587054305&vendorItemId=87661980254) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 미니PC HP 엘리트데스크 800 G2 i5-6500T 사무용 슬림 데스크탑, HP 미니 PC 엘리트 데스크 800 G2, 사은품X 4만원 금액할인혜택(PC만 발송)
 
-![미니pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d391/75d3688322954b57adaecab427d75221f95a5b28e3fd5a8953909dbc4ee8.jpg)
+[![미니pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d391/75d3688322954b57adaecab427d75221f95a5b28e3fd5a8953909dbc4ee8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7647736967&traceid=V0-153&itemId=20340316580&vendorItemId=87006743320)
 
 
 👍 [미니PC HP 엘리트데스크 800 G2 i5-6500T 사무용 슬림 데스크탑, HP 미니 PC 엘리트 데스크 800 G2, 사은품X 4만원 금액할인혜택(PC만 발송) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7647736967&traceid=V0-153&itemId=20340316580&vendorItemId=87006743320) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. Beelink-미니 S 윈도우즈 11 인텔 11 세대 N5095 /미니 S12 프로 N100/ PC DDR4 8GB 128GB 1TB SSD 데스크탑 게임용컴퓨터, 8GB+128GB, MINI S N5095
 
-![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0d9c/efef6d6c515a6403d91836d981ef8dd3721d284e309c1548cdcfe1d1406a.jpg)
+[![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0d9c/efef6d6c515a6403d91836d981ef8dd3721d284e309c1548cdcfe1d1406a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7328122823&traceid=V0-153&itemId=18808228408&vendorItemId=85938832475)
 
 
 👍 [Beelink-미니 S 윈도우즈 11 인텔 11 세대 N5095 /미니 S12 프로 N100/ PC DDR4 8GB 128GB 1TB SSD 데스크탑 게임용컴퓨터, 8GB+128GB, MINI S N5095 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7328122823&traceid=V0-153&itemId=18808228408&vendorItemId=85938832475) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. 삼성전자 게이밍 컴퓨터 데스크탑 PC 사무용 게임용 업무용 주식용, 본체만, 사무용 본체만 2번
 
-![미니pc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/44c7/7182f835ff6309ccba513e0c8b2749ba00a09d5fccccd4d4de821f24dfe5.jpg)
+[![미니pc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/44c7/7182f835ff6309ccba513e0c8b2749ba00a09d5fccccd4d4de821f24dfe5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619327042&traceid=V0-153&itemId=20197134448&vendorItemId=87515622938)
 
 
 👍 [삼성전자 게이밍 컴퓨터 데스크탑 PC 사무용 게임용 업무용 주식용, 본체만, 사무용 본체만 2번 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619327042&traceid=V0-153&itemId=20197134448&vendorItemId=87515622938) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 피코펄스 미니PC n100 (win11 포함), DDR5 16G SSD 512GB
 
-![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c712/f14560444c9175b15f4d6c2f96c8b1ae45240227de71787066e02fd60446.jpg)
+[![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c712/f14560444c9175b15f4d6c2f96c8b1ae45240227de71787066e02fd60446.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7748712743&traceid=V0-153&itemId=20866137563&vendorItemId=87760507904)
 
 
 👍 [피코펄스 미니PC n100 (win11 포함), DDR5 16G SSD 512GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7748712743&traceid=V0-153&itemId=20866137563&vendorItemId=87760507904) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. ASUS MiniPC PN51-S1-B-B7186MD R7 5700U, 16GB, 256GB, Free Dos
 
-![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6cbc/fa64e757cbe9c80f040f1fbb7d2d134037c2d9e9717a7f9a4ad8e228d36b.jpg)
+[![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6cbc/fa64e757cbe9c80f040f1fbb7d2d134037c2d9e9717a7f9a4ad8e228d36b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7558239812&traceid=V0-153&itemId=19906836342&vendorItemId=87006831290)
 
 
 👍 [ASUS MiniPC PN51-S1-B-B7186MD R7 5700U, 16GB, 256GB, Free Dos <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7558239812&traceid=V0-153&itemId=19906836342&vendorItemId=87006831290) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 게이밍PC 조립 컴퓨터 고성능 고사양 본체 i5 RTX2060 게임용 데스크탑, 기본형, 5. i5-11400F 16G 240G RTX2060
 
-![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2f73/4f92350545c1c1d2d1c147e190ac3a0a3a239a2c48e10f3a5615946fb707.jpg)
+[![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2f73/4f92350545c1c1d2d1c147e190ac3a0a3a239a2c48e10f3a5615946fb707.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6922261009&traceid=V0-153&itemId=16720720559&vendorItemId=86041774810)
 
 
 👍 [게이밍PC 조립 컴퓨터 고성능 고사양 본체 i5 RTX2060 게임용 데스크탑, 기본형, 5. i5-11400F 16G 240G RTX2060 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6922261009&traceid=V0-153&itemId=16720720559&vendorItemId=86041774810) 👌 

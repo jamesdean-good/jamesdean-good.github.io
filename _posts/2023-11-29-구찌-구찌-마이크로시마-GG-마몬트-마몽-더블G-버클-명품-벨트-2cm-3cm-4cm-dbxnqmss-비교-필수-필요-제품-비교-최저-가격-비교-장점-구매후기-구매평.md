@@ -32,7 +32,7 @@ pin: true
 
 ## 1. 구찌 마이크로시마 GG 마몬트 마몽 더블G 버클 명품 벨트 2cm 3cm 4cm
 
-![구찌 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/201c/b2d188a3a7bc6792b2acba2a07da5aa6f5c80b504a385b48d080930677c6.jpg)
+[![구찌 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/201c/b2d188a3a7bc6792b2acba2a07da5aa6f5c80b504a385b48d080930677c6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7600168793&traceid=V0-153&itemId=20103039854&vendorItemId=87198113735)
 
 
 👍 [구찌 마이크로시마 GG 마몬트 마몽 더블G 버클 명품 벨트 2cm 3cm 4cm <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7600168793&traceid=V0-153&itemId=20103039854&vendorItemId=87198113735) 👌 
@@ -50,7 +50,7 @@ pin: true
 
 ## 2. 구찌 플로라 골저스 가드니아 오 드 퍼퓸, 100ml, 1개
 
-![구찌 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/35fd/dcfdf15adacb7da02bb68b1f31cf92c3d439abcf6a1fe5fde5f801504558.jpg)
+[![구찌 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/35fd/dcfdf15adacb7da02bb68b1f31cf92c3d439abcf6a1fe5fde5f801504558.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6601079292&traceid=V0-153&itemId=14933574050&vendorItemId=82889597144)
 
 
 👍 [구찌 플로라 골저스 가드니아 오 드 퍼퓸, 100ml, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6601079292&traceid=V0-153&itemId=14933574050&vendorItemId=82889597144) 👌 
@@ -68,7 +68,7 @@ pin: true
 
 ## 3. [무료선물포장] 구찌 GG 플라워 울 숄 스카프 508797
 
-![구찌 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3d85/7b38029d6cd3bdf3935a9ba7cd1f95eecd94b3f9178d3c2c4ed7281cc885.jpg)
+[![구찌 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3d85/7b38029d6cd3bdf3935a9ba7cd1f95eecd94b3f9178d3c2c4ed7281cc885.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7681599928&traceid=V0-153&itemId=20518832456&vendorItemId=86949792463)
 
 
 👍 [[무료선물포장] 구찌 GG 플라워 울 숄 스카프 508797 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7681599928&traceid=V0-153&itemId=20518832456&vendorItemId=86949792463) 👌 
@@ -86,7 +86,7 @@ pin: true
 
 ## 4. 구찌 마이크로시마 GG 마몬트 마몽 더블G 버클 명품 벨트 2cm 3cm 4cm
 
-![구찌 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/201c/b2d188a3a7bc6792b2acba2a07da5aa6f5c80b504a385b48d080930677c6.jpg)
+[![구찌 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/201c/b2d188a3a7bc6792b2acba2a07da5aa6f5c80b504a385b48d080930677c6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7600168793&traceid=V0-153&itemId=20103039786&vendorItemId=87198113506)
 
 
 👍 [구찌 마이크로시마 GG 마몬트 마몽 더블G 버클 명품 벨트 2cm 3cm 4cm <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7600168793&traceid=V0-153&itemId=20103039786&vendorItemId=87198113506) 👌 
@@ -104,7 +104,7 @@ pin: true
 
 ## 5. 고급 천연악어가죽 슬림 클러치백 2023
 
-![구찌 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d330/45627c890a793da01723681be23a222f1137ae39165b72dc3ed1f74a603f.jpg)
+[![구찌 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d330/45627c890a793da01723681be23a222f1137ae39165b72dc3ed1f74a603f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4892877998&traceid=V0-153&itemId=6378176997&vendorItemId=73673280220)
 
 
 👍 [고급 천연악어가죽 슬림 클러치백 2023 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4892877998&traceid=V0-153&itemId=6378176997&vendorItemId=73673280220) 👌 
@@ -122,7 +122,7 @@ pin: true
 
 ## 6. 글라시스 명품스타일 럭셔리 가벼운 5컬러 사각선글라스 오버사이즈핏 고현정 송경아 박정아
 
-![구찌 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7021/7cc0cdb2b1040f44370bf91e03a7b83d98edd421c00c407887381bf6c7ae.jpg)
+[![구찌 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7021/7cc0cdb2b1040f44370bf91e03a7b83d98edd421c00c407887381bf6c7ae.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7309483931&traceid=V0-153&itemId=18722632006&vendorItemId=82754631713)
 
 
 👍 [글라시스 명품스타일 럭셔리 가벼운 5컬러 사각선글라스 오버사이즈핏 고현정 송경아 박정아 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7309483931&traceid=V0-153&itemId=18722632006&vendorItemId=82754631713) 👌 
@@ -140,7 +140,7 @@ pin: true
 
 ## 7. 구찌 쥬얼리 YBA620798001 (620798 J8400 0811) 인터로킹 G 팔찌
 
-![구찌 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6cb6/c0798e9dd65f6fa5fe6a4eb3bcf47c57d2360194246c50b717a7cd6396c9.jpg)
+[![구찌 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6cb6/c0798e9dd65f6fa5fe6a4eb3bcf47c57d2360194246c50b717a7cd6396c9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7312805188&traceid=V0-153&itemId=18738106994&vendorItemId=85870449069)
 
 
 👍 [구찌 쥬얼리 YBA620798001 (620798 J8400 0811) 인터로킹 G 팔찌 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7312805188&traceid=V0-153&itemId=18738106994&vendorItemId=85870449069) 👌 
@@ -158,7 +158,7 @@ pin: true
 
 ## 8. 구찌 GG로고 스카프 울실크스카프 165904
 
-![구찌 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b586/c3c50777406e21b6164fa24a6486986e0183471a26925d57644914c99507.jpg)
+[![구찌 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b586/c3c50777406e21b6164fa24a6486986e0183471a26925d57644914c99507.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7565161917&traceid=V0-153&itemId=19939832637&vendorItemId=87039173999)
 
 
 👍 [구찌 GG로고 스카프 울실크스카프 165904 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7565161917&traceid=V0-153&itemId=19939832637&vendorItemId=87039173999) 👌 
@@ -176,7 +176,7 @@ pin: true
 
 ## 9. 구찌 안경테 GG1192O 001 사각 명품 블랙 뿔테 금장 로고 장식
 
-![구찌 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3900/a2a0f42ff40118185846dabe683c9ce47cabf839947e93abe23f197fcc27.jpg)
+[![구찌 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3900/a2a0f42ff40118185846dabe683c9ce47cabf839947e93abe23f197fcc27.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7480985625&traceid=V0-153&itemId=19541028982&vendorItemId=86649310363)
 
 
 👍 [구찌 안경테 GG1192O 001 사각 명품 블랙 뿔테 금장 로고 장식 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7480985625&traceid=V0-153&itemId=19541028982&vendorItemId=86649310363) 👌 
@@ -194,7 +194,7 @@ pin: true
 
 ## 10. 구찌 루즈 아 레브르 브왈 립스틱, 1개, 3.5g, #203 마일드레드 로즈우드
 
-![구찌 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/58df/99d66207431bbf3f9b780250f3dcc8295491c097abbf8c142f466f56cf4d.jpg)
+[![구찌 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/58df/99d66207431bbf3f9b780250f3dcc8295491c097abbf8c142f466f56cf4d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7714058004&traceid=V0-153&itemId=20685540971&vendorItemId=87757378123)
 
 
 👍 [구찌 루즈 아 레브르 브왈 립스틱, 1개, 3.5g, #203 마일드레드 로즈우드 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7714058004&traceid=V0-153&itemId=20685540971&vendorItemId=87757378123) 👌 

@@ -35,7 +35,7 @@ SSD는 HDD에 비해 크기가 작습니다. 따라서 휴대성이 뛰어납니
 
 ## 1. 솔리다임 P41 PLUS M.2 NVMe Gen4 QLC SSD, SSDPFKNU010TZ, 1TB
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/05/08/12/5/25f937f6-6f95-42c8-8135-90170ab78e46.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/05/08/12/5/25f937f6-6f95-42c8-8135-90170ab78e46.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7320017635&traceid=V0-153&itemId=18772380274&vendorItemId=85903994990)
 
 
 👍 [솔리다임 P41 PLUS M.2 NVMe Gen4 QLC SSD, SSDPFKNU010TZ, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7320017635&traceid=V0-153&itemId=18772380274&vendorItemId=85903994990) 👌 
@@ -53,7 +53,7 @@ SSD는 HDD에 비해 크기가 작습니다. 따라서 휴대성이 뛰어납니
 
 ## 2. 기가바이트 SSD, GP-GSTFS31100TNTD, 1TB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/xbp3faej/4261d7606c7048ce9e483311733336ca.png)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/xbp3faej/4261d7606c7048ce9e483311733336ca.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=9127701173&vendorItemId=76413743812)
 
 
 👍 [기가바이트 SSD, GP-GSTFS31100TNTD, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=9127701173&vendorItemId=76413743812) 👌 
@@ -71,7 +71,7 @@ SSD는 HDD에 비해 크기가 작습니다. 따라서 휴대성이 뛰어납니
 
 ## 3. 기가바이트 SSD, GIGABYTE SSD 240GB, 240GB
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c628/886a4ff21188518e207a96c03fe8e4a79b802c077a8cb70dfe33583b32bd.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c628/886a4ff21188518e207a96c03fe8e4a79b802c077a8cb70dfe33583b32bd.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=2058262205&vendorItemId=84641644288)
 
 
 👍 [기가바이트 SSD, GIGABYTE SSD 240GB, 240GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=2058262205&vendorItemId=84641644288) 👌 
@@ -89,7 +89,7 @@ SSD는 HDD에 비해 크기가 작습니다. 따라서 휴대성이 뛰어납니
 
 ## 4. SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470) 👌 
@@ -107,7 +107,7 @@ SSD는 HDD에 비해 크기가 작습니다. 따라서 휴대성이 뛰어납니
 
 ## 5. WD My Passport 휴대용 외장하드 + 파우치, 5TB, 레드
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/915455891675350-1f1572a4-978d-4225-88f4-5a8e17f92b31.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/915455891675350-1f1572a4-978d-4225-88f4-5a8e17f92b31.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1238087073&traceid=V0-153&itemId=2168707036&vendorItemId=70166836905)
 
 
 👍 [WD My Passport 휴대용 외장하드 + 파우치, 5TB, 레드 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1238087073&traceid=V0-153&itemId=2168707036&vendorItemId=70166836905) 👌 
@@ -125,7 +125,7 @@ SSD는 HDD에 비해 크기가 작습니다. 따라서 휴대성이 뛰어납니
 
 ## 6. WD Elements Portable 휴대용 외장하드 + 파우치, 2TB, 블랙
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/9622530800685994-5d16cc8f-20ca-4268-942b-714003af6c97.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/9622530800685994-5d16cc8f-20ca-4268-942b-714003af6c97.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=25271683&traceid=V0-153&itemId=98239783&vendorItemId=3179136995)
 
 
 👍 [WD Elements Portable 휴대용 외장하드 + 파우치, 2TB, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=25271683&traceid=V0-153&itemId=98239783&vendorItemId=3179136995) 👌 
@@ -143,7 +143,7 @@ SSD는 HDD에 비해 크기가 작습니다. 따라서 휴대성이 뛰어납니
 
 ## 7. SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457) 👌 
@@ -161,7 +161,7 @@ SSD는 HDD에 비해 크기가 작습니다. 따라서 휴대성이 뛰어납니
 
 ## 8. 샌디스크 Portable SSD E30, 1TB, 블랙
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 
 👍 [샌디스크 Portable SSD E30, 1TB, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486) 👌 
@@ -179,7 +179,7 @@ SSD는 HDD에 비해 크기가 작습니다. 따라서 휴대성이 뛰어납니
 
 ## 9. WD My Passport SSD, 2TB, Gold
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/976a/41a544a30309af1f818969247b58014f266b73e717e47d95a15fd2502351.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/976a/41a544a30309af1f818969247b58014f266b73e717e47d95a15fd2502351.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2145848519&traceid=V0-153&itemId=5415588459&vendorItemId=86683635533)
 
 
 👍 [WD My Passport SSD, 2TB, Gold <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2145848519&traceid=V0-153&itemId=5415588459&vendorItemId=86683635533) 👌 
@@ -197,7 +197,7 @@ SSD는 HDD에 비해 크기가 작습니다. 따라서 휴대성이 뛰어납니
 
 ## 10. 마이크론 Crucial SSD, MX500, 500GB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/product/image/vendoritem/2018/11/02/3775286726/d5d25003-a1cd-45c7-a708-60debdee7acb.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/product/image/vendoritem/2018/11/02/3775286726/d5d25003-a1cd-45c7-a708-60debdee7acb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=104047591&traceid=V0-153&itemId=19281675499&vendorItemId=3775286726)
 
 
 👍 [마이크론 Crucial SSD, MX500, 500GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=104047591&traceid=V0-153&itemId=19281675499&vendorItemId=3775286726) 👌 

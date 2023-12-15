@@ -33,7 +33,7 @@ pin: true
 
 ## 1. SK매직 NEW 에코 가스레인지 2구 자가설치, GRA831SR(실버), LNG
 
-![가스레인지 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2446461530476450-149baa13-249c-488a-8758-feaf8b1b1592.jpg)
+[![가스레인지 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2446461530476450-149baa13-249c-488a-8758-feaf8b1b1592.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=288727240&traceid=V0-153&itemId=914291476&vendorItemId=5283327111)
 
 
 👍 [SK매직 NEW 에코 가스레인지 2구 자가설치, GRA831SR(실버), LNG <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=288727240&traceid=V0-153&itemId=914291476&vendorItemId=5283327111) 👌 
@@ -51,7 +51,7 @@ pin: true
 
 ## 2. SK매직 NEW 에코 가스레인지 2구 자가설치, GRA831SR(실버), LNG
 
-![가스레인지 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2446461530476450-149baa13-249c-488a-8758-feaf8b1b1592.jpg)
+[![가스레인지 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2446461530476450-149baa13-249c-488a-8758-feaf8b1b1592.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=288727240&traceid=V0-153&itemId=914291476&vendorItemId=5283327111)
 
 
 👍 [SK매직 NEW 에코 가스레인지 2구 자가설치, GRA831SR(실버), LNG <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=288727240&traceid=V0-153&itemId=914291476&vendorItemId=5283327111) 👌 
@@ -69,7 +69,7 @@ pin: true
 
 ## 3. SK매직 NEW 전면배터리 가스레인지 2구 자가설치, GRA840SR(화이트), LNG
 
-![가스레인지 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1132887379466676-6a0e7cc3-1892-4a6d-8b0a-e3787fd1d262.jpg)
+[![가스레인지 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1132887379466676-6a0e7cc3-1892-4a6d-8b0a-e3787fd1d262.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=291570341&traceid=V0-153&itemId=922251818&vendorItemId=5294899798)
 
 
 👍 [SK매직 NEW 전면배터리 가스레인지 2구 자가설치, GRA840SR(화이트), LNG <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=291570341&traceid=V0-153&itemId=922251818&vendorItemId=5294899798) 👌 
@@ -87,7 +87,7 @@ pin: true
 
 ## 4. 린나이 AA 가스레인지 2구 스탠드전용 고객직접설치, LNG, INCP2032WJ(펄화이트)
 
-![가스레인지 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/06/14/12/1/0c6b15e2-f1f2-4e50-ac13-8f89a4115406.jpg)
+[![가스레인지 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/06/14/12/1/0c6b15e2-f1f2-4e50-ac13-8f89a4115406.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5540885869&traceid=V0-153&itemId=19153879101&vendorItemId=86272762858)
 
 
 👍 [린나이 AA 가스레인지 2구 스탠드전용 고객직접설치, LNG, INCP2032WJ(펄화이트) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5540885869&traceid=V0-153&itemId=19153879101&vendorItemId=86272762858) 👌 
@@ -105,7 +105,7 @@ pin: true
 
 ## 5. SK매직 NEW 가스레인지 2구 자가설치, GRA830SR(화이트), LNG
 
-![가스레인지 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3161418401073-60ee6aeb-5381-4e99-ae19-f250c857240f.png)
+[![가스레인지 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3161418401073-60ee6aeb-5381-4e99-ae19-f250c857240f.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=291570314&traceid=V0-153&itemId=922251713&vendorItemId=5294899563)
 
 
 👍 [SK매직 NEW 가스레인지 2구 자가설치, GRA830SR(화이트), LNG <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=291570314&traceid=V0-153&itemId=922251713&vendorItemId=5294899563) 👌 
@@ -123,7 +123,7 @@ pin: true
 
 ## 6. 린나이 2구 AA 가스렌지/가스레인지 ATH200S, LPG, 선택완료
 
-![가스레인지 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b193/df3c68b1033848c04ab2e34e79b2f7d82cb143af40a760e03844b09e7f9c.jpg)
+[![가스레인지 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b193/df3c68b1033848c04ab2e34e79b2f7d82cb143af40a760e03844b09e7f9c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7384718370&traceid=V0-153&itemId=19079580541&vendorItemId=86397334712)
 
 
 👍 [린나이 2구 AA 가스렌지/가스레인지 ATH200S, LPG, 선택완료 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7384718370&traceid=V0-153&itemId=19079580541&vendorItemId=86397334712) 👌 
@@ -141,7 +141,7 @@ pin: true
 
 ## 7. 린나이 스탠드전용 가스레인지 3구 골드실버 고객직접설치, RT-6502I, LNG
 
-![가스레인지 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/04/17/15/6/1cafe09e-d326-47ca-9297-b4132b89ca7d.jpg)
+[![가스레인지 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/04/17/15/6/1cafe09e-d326-47ca-9297-b4132b89ca7d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7274053406&traceid=V0-153&itemId=18557957041&vendorItemId=85695662445)
 
 
 👍 [린나이 스탠드전용 가스레인지 3구 골드실버 고객직접설치, RT-6502I, LNG <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7274053406&traceid=V0-153&itemId=18557957041&vendorItemId=85695662445) 👌 
@@ -159,7 +159,7 @@ pin: true
 
 ## 8. SK매직 NEW 가스레인지 2구 자가설치, GRA830SR(화이트), LPG
 
-![가스레인지 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3731690372028326-45dad8f3-4277-4957-9ce5-a4a948dc9a05.jpg)
+[![가스레인지 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3731690372028326-45dad8f3-4277-4957-9ce5-a4a948dc9a05.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=291570314&traceid=V0-153&itemId=922251724&vendorItemId=5294899594)
 
 
 👍 [SK매직 NEW 가스레인지 2구 자가설치, GRA830SR(화이트), LPG <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=291570314&traceid=V0-153&itemId=922251724&vendorItemId=5294899594) 👌 
@@ -177,7 +177,7 @@ pin: true
 
 ## 9. SK매직 자동온도조절 가스렌지 3구 자가설치 GRA-CM370R, LNG
 
-![가스레인지 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/product/image/vendoritem/2019/02/28/3099280277/c831e8d2-5efe-4823-b98f-f93d58412444.jpg)
+[![가스레인지 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/product/image/vendoritem/2019/02/28/3099280277/c831e8d2-5efe-4823-b98f-f93d58412444.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=15375849&traceid=V0-153&itemId=63253090&vendorItemId=3099280277)
 
 
 👍 [SK매직 자동온도조절 가스렌지 3구 자가설치 GRA-CM370R, LNG <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=15375849&traceid=V0-153&itemId=63253090&vendorItemId=3099280277) 👌 
@@ -195,7 +195,7 @@ pin: true
 
 ## 10. SK매직 NEW 전면배터리 가스레인지 2구 자가설치, GRA841SR(실버), LNG
 
-![가스레인지 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2674901673501-448825f3-da4f-4f55-889b-611f914a1b69.jpg)
+[![가스레인지 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2674901673501-448825f3-da4f-4f55-889b-611f914a1b69.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=291570341&traceid=V0-153&itemId=12507641005&vendorItemId=5294899843)
 
 
 👍 [SK매직 NEW 전면배터리 가스레인지 2구 자가설치, GRA841SR(실버), LNG <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=291570341&traceid=V0-153&itemId=12507641005&vendorItemId=5294899843) 👌 

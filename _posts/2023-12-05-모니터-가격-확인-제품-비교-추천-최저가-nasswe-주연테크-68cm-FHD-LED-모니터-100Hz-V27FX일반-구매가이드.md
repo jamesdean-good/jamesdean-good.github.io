@@ -33,7 +33,7 @@ pin: true
 
 ## 1. 주연테크 68cm FHD LED 모니터 100Hz, V27FX(일반)
 
-![모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2206161680480901-8fa797cf-73ce-4f1c-b05a-c59fabe0ee29.jpg)
+[![모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2206161680480901-8fa797cf-73ce-4f1c-b05a-c59fabe0ee29.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7410135637&traceid=V0-153&itemId=19197882680&vendorItemId=86315316069)
 
 
 👍 [주연테크 68cm FHD LED 모니터 100Hz, V27FX(일반) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7410135637&traceid=V0-153&itemId=19197882680&vendorItemId=86315316069) 👌 
@@ -51,7 +51,7 @@ pin: true
 
 ## 2. LG전자 60.4cm FHD 모니터, 24MQ400C
 
-![모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2289724248557437-44665379-a414-4ace-bc4d-18a0096da3c0.jpg)
+[![모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2289724248557437-44665379-a414-4ace-bc4d-18a0096da3c0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148659&traceid=V0-153&itemId=17685982372&vendorItemId=84851123428)
 
 
 👍 [LG전자 60.4cm FHD 모니터, 24MQ400C <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148659&traceid=V0-153&itemId=17685982372&vendorItemId=84851123428) 👌 
@@ -69,7 +69,7 @@ pin: true
 
 ## 3. 주연테크 54.6cm FHD LED 모니터 100Hz, V22FX(일반)
 
-![모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/671217612372165-b6d07ba8-e3fa-4a08-8fba-cb4adbedd0d0.jpg)
+[![모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/671217612372165-b6d07ba8-e3fa-4a08-8fba-cb4adbedd0d0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7410323525&traceid=V0-153&itemId=19198810280&vendorItemId=86316217055)
 
 
 👍 [주연테크 54.6cm FHD LED 모니터 100Hz, V22FX(일반) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7410323525&traceid=V0-153&itemId=19198810280&vendorItemId=86316217055) 👌 
@@ -87,7 +87,7 @@ pin: true
 
 ## 4. KOORUI 60.45cm FHD Fast IPS 리얼 165Hz 1ms(gtg) 게이밍 모니터 24E3 블랙 [프리싱크/G-sync 지원]
 
-![모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6ee9/d92ad524beee0e7ee563eee25c7f87253620769ec75a252b0f952c57e215.jpg)
+[![모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6ee9/d92ad524beee0e7ee563eee25c7f87253620769ec75a252b0f952c57e215.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434027963&traceid=V0-153&itemId=19315340231&vendorItemId=86457367323)
 
 
 👍 [KOORUI 60.45cm FHD Fast IPS 리얼 165Hz 1ms(gtg) 게이밍 모니터 24E3 블랙 [프리싱크/G-sync 지원] <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434027963&traceid=V0-153&itemId=19315340231&vendorItemId=86457367323) 👌 
@@ -105,7 +105,7 @@ pin: true
 
 ## 5. 어드밴스원 60.45cm 100HZ 2HDMI 모니터, AF-2408GH(무결점)
 
-![모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3378588538935574-8ea5fe20-37e2-4c5c-b491-6c40ddbe68a0.jpg)
+[![모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3378588538935574-8ea5fe20-37e2-4c5c-b491-6c40ddbe68a0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=221307135&traceid=V0-153&itemId=691074489&vendorItemId=4770692346)
 
 
 👍 [어드밴스원 60.45cm 100HZ 2HDMI 모니터, AF-2408GH(무결점) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=221307135&traceid=V0-153&itemId=691074489&vendorItemId=4770692346) 👌 
@@ -123,7 +123,7 @@ pin: true
 
 ## 6. 삼성전자 59cm LED 24인치 피벗 모니터 S24C45K 컴퓨터모니터, S24C45K(기본)
 
-![모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b05c/8e2452ca19fb6763405d1c9764fb9769ea305b56086f1b473605e1cbe4c3.jpg)
+[![모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b05c/8e2452ca19fb6763405d1c9764fb9769ea305b56086f1b473605e1cbe4c3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7275950495&traceid=V0-153&itemId=18566573769&vendorItemId=87718502477)
 
 
 👍 [삼성전자 59cm LED 24인치 피벗 모니터 S24C45K 컴퓨터모니터, S24C45K(기본) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7275950495&traceid=V0-153&itemId=18566573769&vendorItemId=87718502477) 👌 
@@ -141,7 +141,7 @@ pin: true
 
 ## 7. 삼성전자 24인치 Fhd led모니터 50대한정 특가판매
 
-![모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/98f5/f68e50a4652c26e618536472d26532b3c115902c2cf88ea9a4b4254acb8b.jpg)
+[![모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/98f5/f68e50a4652c26e618536472d26532b3c115902c2cf88ea9a4b4254acb8b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7468985589&traceid=V0-153&itemId=19485162524&vendorItemId=87854831645)
 
 
 👍 [삼성전자 24인치 Fhd led모니터 50대한정 특가판매 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7468985589&traceid=V0-153&itemId=19485162524&vendorItemId=87854831645) 👌 
@@ -159,7 +159,7 @@ pin: true
 
 ## 8. 빅트랙 60.45cm FHD IPS 100Hz 평면 모니터 블랙, 24FM10001(일반)
 
-![모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/7832984009105723-0f82acdb-0b33-4f6a-a32d-4dd236007fb2.png)
+[![모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/7832984009105723-0f82acdb-0b33-4f6a-a32d-4dd236007fb2.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7539694494&traceid=V0-153&itemId=19817034553&vendorItemId=86919057029)
 
 
 👍 [빅트랙 60.45cm FHD IPS 100Hz 평면 모니터 블랙, 24FM10001(일반) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7539694494&traceid=V0-153&itemId=19817034553&vendorItemId=86919057029) 👌 
@@ -177,7 +177,7 @@ pin: true
 
 ## 9. 디엑스 68.58cm FHD 초슬림 베젤리스 모니터, DX275HDMI(일반)-IPS 27인치
 
-![모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/408e/ddda3189d749b7807d5c4397ea06dd5206002604f793eb0833b14362dc80.jpg)
+[![모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/408e/ddda3189d749b7807d5c4397ea06dd5206002604f793eb0833b14362dc80.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7196457495&traceid=V0-153&itemId=18180471797&vendorItemId=84935807710)
 
 
 👍 [디엑스 68.58cm FHD 초슬림 베젤리스 모니터, DX275HDMI(일반)-IPS 27인치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7196457495&traceid=V0-153&itemId=18180471797&vendorItemId=84935807710) 👌 
@@ -195,7 +195,7 @@ pin: true
 
 ## 10. 주연테크 80cm FHD 커브드 게이밍 모니터 165Hz 1ms 1500R, X32FC-165(일반)
 
-![모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3303824027063148-caefa967-b1b6-480b-bc23-b3ad760c5269.jpg)
+[![모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3303824027063148-caefa967-b1b6-480b-bc23-b3ad760c5269.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6247615579&traceid=V0-153&itemId=12645893216&vendorItemId=85917787112)
 
 
 👍 [주연테크 80cm FHD 커브드 게이밍 모니터 165Hz 1ms 1500R, X32FC-165(일반) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6247615579&traceid=V0-153&itemId=12645893216&vendorItemId=85917787112) 👌 

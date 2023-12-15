@@ -33,7 +33,7 @@ pin: true
 
 ## 1. EAGLE PEAK 글리멜로 조절 가능한 어깨끈천연소가죽 여성 데일리 미니 크로스백
 
-![구찌크로스백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d752/9afd624efedf424873522241dba6f55058a73f05acdc2acaf41a729a6221.jpg)
+[![구찌크로스백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d752/9afd624efedf424873522241dba6f55058a73f05acdc2acaf41a729a6221.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7702408757&traceid=V0-153&itemId=20626136178&vendorItemId=87700180182)
 
 
 👍 [EAGLE PEAK 글리멜로 조절 가능한 어깨끈천연소가죽 여성 데일리 미니 크로스백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7702408757&traceid=V0-153&itemId=20626136178&vendorItemId=87700180182) 👌 
@@ -51,7 +51,7 @@ pin: true
 
 ## 2. 구찌 패브릭 크로스백 449184 G1XHN 8615 미디움
 
-![구찌크로스백 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3657/4744deddc27b95eda68b2e478583805d72fed11f558bc9aabce6e544e9fe.jpg)
+[![구찌크로스백 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3657/4744deddc27b95eda68b2e478583805d72fed11f558bc9aabce6e544e9fe.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7564152311&traceid=V0-153&itemId=19934787489&vendorItemId=86361881032)
 
 
 👍 [구찌 패브릭 크로스백 449184 G1XHN 8615 미디움 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7564152311&traceid=V0-153&itemId=19934787489&vendorItemId=86361881032) 👌 
@@ -69,7 +69,7 @@ pin: true
 
 ## 3. 구찌 마이크로시마 크로스백 449183 G1XHN 8615 스몰
 
-![구찌크로스백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/aa74/5a3e501d5c70cf4616e9efb937f7ea76f9aa77e43ad21cfb453d6c3e0e0a.jpg)
+[![구찌크로스백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/aa74/5a3e501d5c70cf4616e9efb937f7ea76f9aa77e43ad21cfb453d6c3e0e0a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6659302813&traceid=V0-153&itemId=15281929429&vendorItemId=82502418925)
 
 
 👍 [구찌 마이크로시마 크로스백 449183 G1XHN 8615 스몰 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6659302813&traceid=V0-153&itemId=15281929429&vendorItemId=82502418925) 👌 
@@ -87,7 +87,7 @@ pin: true
 
 ## 4. ANYOU 패션 여성가방 크로스백 미니 겨드랑이 가방
 
-![구찌크로스백 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2561/6d2702e3903e48701ca7ab18a8952fa877b19df2a82bf4b12f8bc8966951.jpg)
+[![구찌크로스백 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2561/6d2702e3903e48701ca7ab18a8952fa877b19df2a82bf4b12f8bc8966951.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7723208154&traceid=V0-153&itemId=20733177662&vendorItemId=87803764398)
 
 
 👍 [ANYOU 패션 여성가방 크로스백 미니 겨드랑이 가방 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7723208154&traceid=V0-153&itemId=20733177662&vendorItemId=87803764398) 👌 
@@ -105,7 +105,7 @@ pin: true
 
 ## 5. 구찌 홀스빗 1955 숄더백 미니 이너백 백인백 가온백
 
-![구찌크로스백 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4f35/29c49ecf2c2d507b69312ef3e6e4d2a8c1bfc382cc14f05e6c0c9b9aa4cf.jpg)
+[![구찌크로스백 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4f35/29c49ecf2c2d507b69312ef3e6e4d2a8c1bfc382cc14f05e6c0c9b9aa4cf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7187930135&traceid=V0-153&itemId=18141991078&vendorItemId=84967251921)
 
 
 👍 [구찌 홀스빗 1955 숄더백 미니 이너백 백인백 가온백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7187930135&traceid=V0-153&itemId=18141991078&vendorItemId=84967251921) 👌 
@@ -123,7 +123,7 @@ pin: true
 
 ## 6. 구찌 오피디아 버킷백 스몰 이너백 백인백 가온백
 
-![구찌크로스백 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/94af/4af3701f0d1a84e9457cd5cba6fcf5df5bbc47b1e91c79cec4f12190efaa.jpg)
+[![구찌크로스백 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/94af/4af3701f0d1a84e9457cd5cba6fcf5df5bbc47b1e91c79cec4f12190efaa.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7118140187&traceid=V0-153&itemId=17815367988&vendorItemId=84979318344)
 
 
 👍 [구찌 오피디아 버킷백 스몰 이너백 백인백 가온백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7118140187&traceid=V0-153&itemId=17815367988&vendorItemId=84979318344) 👌 
@@ -141,7 +141,7 @@ pin: true
 
 ## 7. (동부산아울렛 당일발송 AS가능) 구찌 GG 슈프림 힙색 크로스 벨트백 449174
 
-![구찌크로스백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f6f1/21761dc4de3c0007e394734c41f585655881c51ba794dbf5b0f294bf74d5.png)
+[![구찌크로스백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f6f1/21761dc4de3c0007e394734c41f585655881c51ba794dbf5b0f294bf74d5.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7197505062&traceid=V0-153&itemId=18185430525&vendorItemId=85334335824)
 
 
 👍 [(동부산아울렛 당일발송 AS가능) 구찌 GG 슈프림 힙색 크로스 벨트백 449174 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7197505062&traceid=V0-153&itemId=18185430525&vendorItemId=85334335824) 👌 
@@ -159,7 +159,7 @@ pin: true
 
 ## 8. 구찌 여자 크로스백 인터로킹 레드 615523 CAO0G 6420
 
-![구찌크로스백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/156c/d705c62182d5b90603bcf671e7f76e2d2862d338ef5b0ce2e06e752a2dc1.jpg)
+[![구찌크로스백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/156c/d705c62182d5b90603bcf671e7f76e2d2862d338ef5b0ce2e06e752a2dc1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7670304523&traceid=V0-153&itemId=20459558794&vendorItemId=87539400465)
 
 
 👍 [구찌 여자 크로스백 인터로킹 레드 615523 CAO0G 6420 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7670304523&traceid=V0-153&itemId=20459558794&vendorItemId=87539400465) 👌 
@@ -177,7 +177,7 @@ pin: true
 
 ## 9. DamiFriends DF 다미프렌즈 여성토트백 여자서류가방 명품백 가죽숄더백 소가죽가방
 
-![구찌크로스백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7f09/0689b51461708ec67b5a7eba0f070bdf9b1f38150ceab4578ea678602a23.jpg)
+[![구찌크로스백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7f09/0689b51461708ec67b5a7eba0f070bdf9b1f38150ceab4578ea678602a23.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7732079918&traceid=V0-153&itemId=20780427331&vendorItemId=87850240231)
 
 
 👍 [DamiFriends DF 다미프렌즈 여성토트백 여자서류가방 명품백 가죽숄더백 소가죽가방 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7732079918&traceid=V0-153&itemId=20780427331&vendorItemId=87850240231) 👌 
@@ -195,7 +195,7 @@ pin: true
 
 ## 10. ANYOU 여성 숄더백 숄더 핸드백 가죽가방
 
-![구찌크로스백 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c89e/8e0a5a0c68b2125e72c3d0260642b3c60a6605475abea802ac3160216cd8.jpg)
+[![구찌크로스백 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c89e/8e0a5a0c68b2125e72c3d0260642b3c60a6605475abea802ac3160216cd8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7723136188&traceid=V0-153&itemId=20732801467&vendorItemId=87803392073)
 
 
 👍 [ANYOU 여성 숄더백 숄더 핸드백 가죽가방 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7723136188&traceid=V0-153&itemId=20732801467&vendorItemId=87803392073) 👌 

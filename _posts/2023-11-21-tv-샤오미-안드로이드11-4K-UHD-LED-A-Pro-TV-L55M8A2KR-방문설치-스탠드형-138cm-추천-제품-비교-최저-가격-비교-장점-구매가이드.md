@@ -35,7 +35,7 @@ TV는 가족, 친구, 이웃 등과 함께 시청할 수 있는 매체입니다.
 
 ## 1. 샤오미 안드로이드11 4K UHD LED A Pro TV, L55M8-A2KR, 방문설치, 스탠드형, 138cm
 
-![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2107871616710691-ea9e1ac8-7fb5-4cd2-8bbc-d34db6801a9d.jpg)
+[![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2107871616710691-ea9e1ac8-7fb5-4cd2-8bbc-d34db6801a9d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692656648&traceid=V0-153&itemId=20575504539&vendorItemId=87650740779)
 
 
 👍 [샤오미 안드로이드11 4K UHD LED A Pro TV, L55M8-A2KR, 방문설치, 스탠드형, 138cm <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692656648&traceid=V0-153&itemId=20575504539&vendorItemId=87650740779) 👌 
@@ -53,7 +53,7 @@ TV는 가족, 친구, 이웃 등과 함께 시청할 수 있는 매체입니다.
 
 ## 2. 샤오미 안드로이드11 4K UHD LED A Pro TV, L65M8-A2KR, 방문설치, 스탠드형, 165cm
 
-![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2107911736963591-7954b15a-5ed3-44b1-9b5f-6c3aa60dd99d.jpg)
+[![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2107911736963591-7954b15a-5ed3-44b1-9b5f-6c3aa60dd99d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692656648&traceid=V0-153&itemId=20575504537&vendorItemId=87650740767)
 
 
 👍 [샤오미 안드로이드11 4K UHD LED A Pro TV, L65M8-A2KR, 방문설치, 스탠드형, 165cm <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692656648&traceid=V0-153&itemId=20575504537&vendorItemId=87650740767) 👌 
@@ -71,7 +71,7 @@ TV는 가족, 친구, 이웃 등과 함께 시청할 수 있는 매체입니다.
 
 ## 3. 프리즘 HD LED TV, 82cm(32인치), PT320HD, 스탠드형, 자가설치
 
-![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5296877259013933-81144453-dd2a-4724-9bc1-93a9b841f85e.jpg)
+[![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5296877259013933-81144453-dd2a-4724-9bc1-93a9b841f85e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
 
 
 👍 [프리즘 HD LED TV, 82cm(32인치), PT320HD, 스탠드형, 자가설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174) 👌 
@@ -89,7 +89,7 @@ TV는 가족, 친구, 이웃 등과 함께 시청할 수 있는 매체입니다.
 
 ## 4. 삼성전자 4K UHD 슬림핏 TV UA7000, 176cm(70인치), KU70UA7000FXKR, 스탠드형, 방문설치
 
-![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/710930450350763-18ba6095-ba32-4c0a-8b3a-f5a001745f15.jpg)
+[![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/710930450350763-18ba6095-ba32-4c0a-8b3a-f5a001745f15.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159)
 
 
 👍 [삼성전자 4K UHD 슬림핏 TV UA7000, 176cm(70인치), KU70UA7000FXKR, 스탠드형, 방문설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159) 👌 
@@ -107,7 +107,7 @@ TV는 가족, 친구, 이웃 등과 함께 시청할 수 있는 매체입니다.
 
 ## 5. LG 22년식 55인치(139cm)UQ7570 스마트TV 4K UHD 매장방문수령, 139cm(55인치)
 
-![tv TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a972/9102d74b71e6075cc134fd45d361a5f1fa940b6660e551e4b3b1f6db74e3.jpg)
+[![tv TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a972/9102d74b71e6075cc134fd45d361a5f1fa940b6660e551e4b3b1f6db74e3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141192269&traceid=V0-153&itemId=17929209103&vendorItemId=85091537979)
 
 
 👍 [LG 22년식 55인치(139cm)UQ7570 스마트TV 4K UHD 매장방문수령, 139cm(55인치) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141192269&traceid=V0-153&itemId=17929209103&vendorItemId=85091537979) 👌 
@@ -125,7 +125,7 @@ TV는 가족, 친구, 이웃 등과 함께 시청할 수 있는 매체입니다.
 
 ## 6. LG 22년식 55인치(139cm)UQ7070 스마트TV 4K UHD 매장방문수령, 139cm(55인치)
 
-![tv TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a972/9102d74b71e6075cc134fd45d361a5f1fa940b6660e551e4b3b1f6db74e3.jpg)
+[![tv TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a972/9102d74b71e6075cc134fd45d361a5f1fa940b6660e551e4b3b1f6db74e3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141045732&traceid=V0-153&itemId=17928583121&vendorItemId=85090922496)
 
 
 👍 [LG 22년식 55인치(139cm)UQ7070 스마트TV 4K UHD 매장방문수령, 139cm(55인치) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141045732&traceid=V0-153&itemId=17928583121&vendorItemId=85090922496) 👌 
@@ -143,7 +143,7 @@ TV는 가족, 친구, 이웃 등과 함께 시청할 수 있는 매체입니다.
 
 ## 7. 삼성전자 FHD LED TV, 108cm(43인치), KU43T5300AFXKR, 스탠드형, 방문설치
 
-![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/527147262785945-fe7f6182-54d1-4458-af44-c83c20a0be9f.jpg)
+[![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/527147262785945-fe7f6182-54d1-4458-af44-c83c20a0be9f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1445605820&traceid=V0-153&itemId=2490893719&vendorItemId=70484091785)
 
 
 👍 [삼성전자 FHD LED TV, 108cm(43인치), KU43T5300AFXKR, 스탠드형, 방문설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1445605820&traceid=V0-153&itemId=2490893719&vendorItemId=70484091785) 👌 
@@ -161,7 +161,7 @@ TV는 가족, 친구, 이웃 등과 함께 시청할 수 있는 매체입니다.
 
 ## 8. [고효율 1등급] 삼성전자 43인치 비즈니스 크리스탈 UHD 4K TV 전국무료설치, 방문설치, 스탠드형
 
-![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cb80/d7e918e175ec181b0708b502f3e46e13aac9d1dcded2af8701d549cd304d.jpg)
+[![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cb80/d7e918e175ec181b0708b502f3e46e13aac9d1dcded2af8701d549cd304d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6579944552&traceid=V0-153&itemId=14802815761&vendorItemId=86626531512)
 
 
 👍 [[고효율 1등급] 삼성전자 43인치 비즈니스 크리스탈 UHD 4K TV 전국무료설치, 방문설치, 스탠드형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6579944552&traceid=V0-153&itemId=14802815761&vendorItemId=86626531512) 👌 
@@ -179,7 +179,7 @@ TV는 가족, 친구, 이웃 등과 함께 시청할 수 있는 매체입니다.
 
 ## 9. LG 70인치(177cm)UN6955 4K UHD 스마트TV 매장방문수령, 고객직접설치
 
-![tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ed64/8a1379bc662f5a81b2e02c3e878886de930524da22260aebe20205207aa4.jpg)
+[![tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ed64/8a1379bc662f5a81b2e02c3e878886de930524da22260aebe20205207aa4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185300500&traceid=V0-153&itemId=18130185193&vendorItemId=85280960332)
 
 
 👍 [LG 70인치(177cm)UN6955 4K UHD 스마트TV 매장방문수령, 고객직접설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185300500&traceid=V0-153&itemId=18130185193&vendorItemId=85280960332) 👌 
@@ -197,7 +197,7 @@ TV는 가족, 친구, 이웃 등과 함께 시청할 수 있는 매체입니다.
 
 ## 10. LG전자 울트라HD TV, 138cm(55인치), 55UR642S0NC, 스탠드형, 방문설치
 
-![tv TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5040478108417053-eaedd045-e77c-4410-bcb3-75bac2ccab8b.jpg)
+[![tv TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5040478108417053-eaedd045-e77c-4410-bcb3-75bac2ccab8b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7047812403&traceid=V0-153&itemId=15843587802&vendorItemId=83054623279)
 
 
 👍 [LG전자 울트라HD TV, 138cm(55인치), 55UR642S0NC, 스탠드형, 방문설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7047812403&traceid=V0-153&itemId=15843587802&vendorItemId=83054623279) 👌 

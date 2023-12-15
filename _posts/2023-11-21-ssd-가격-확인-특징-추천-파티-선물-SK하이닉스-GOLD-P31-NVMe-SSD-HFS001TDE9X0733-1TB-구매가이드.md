@@ -36,7 +36,7 @@ HDD는 데이터가 저장되는 위치가 제각각이기 때문에 조각 모�
 
 ## 1. SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457) 👌 
@@ -54,7 +54,7 @@ HDD는 데이터가 저장되는 위치가 제각각이기 때문에 조각 모�
 
 ## 2. 기가바이트 SSD, GP-GSTFS31100TNTD, 1TB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/xbp3faej/4261d7606c7048ce9e483311733336ca.png)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/xbp3faej/4261d7606c7048ce9e483311733336ca.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=9127701173&vendorItemId=76413743812)
 
 
 👍 [기가바이트 SSD, GP-GSTFS31100TNTD, 1TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=9127701173&vendorItemId=76413743812) 👌 
@@ -72,7 +72,7 @@ HDD는 데이터가 저장되는 위치가 제각각이기 때문에 조각 모�
 
 ## 3. 샌디스크 Portable SSD E30, 1TB, 블랙
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 
 👍 [샌디스크 Portable SSD E30, 1TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486) 👌 
@@ -90,7 +90,7 @@ HDD는 데이터가 저장되는 위치가 제각각이기 때문에 조각 모�
 
 ## 4. 삼성전자 870 EVO SSD, 1TB, MZ-77E1T0
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6730/c397077b84ab072d16f9ad0a0e6d09f85aff14ba9770addecae971732774.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6730/c397077b84ab072d16f9ad0a0e6d09f85aff14ba9770addecae971732774.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253)
 
 
 👍 [삼성전자 870 EVO SSD, 1TB, MZ-77E1T0 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253) 👌 
@@ -108,7 +108,7 @@ HDD는 데이터가 저장되는 위치가 제각각이기 때문에 조각 모�
 
 ## 5. 샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 2TB, 블랙
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8934/cab407497525303883e55848bb414656e943e6f880a3be5bd522f027f99f.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8934/cab407497525303883e55848bb414656e943e6f880a3be5bd522f027f99f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234)
 
 
 👍 [샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 2TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234) 👌 
@@ -126,7 +126,7 @@ HDD는 데이터가 저장되는 위치가 제각각이기 때문에 조각 모�
 
 ## 6. 삼성SSD 870 EVO 500GB, MZ-77E500B/KR
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2ad8/db92487daaf025b5eb91f8b1de66a99b749d6f1348307f909a3d438fc8bf.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2ad8/db92487daaf025b5eb91f8b1de66a99b749d6f1348307f909a3d438fc8bf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=20101987038&vendorItemId=87197101037)
 
 
 👍 [삼성SSD 870 EVO 500GB, MZ-77E500B/KR <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=20101987038&vendorItemId=87197101037) 👌 
@@ -144,7 +144,7 @@ HDD는 데이터가 저장되는 위치가 제각각이기 때문에 조각 모�
 
 ## 7. 샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 1TB, 블랙, 1테라
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1d70/b63f40dc37dfac3222057184d16325f4e2aacc09a91c0f61e1ba2bbfa0e4.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1d70/b63f40dc37dfac3222057184d16325f4e2aacc09a91c0f61e1ba2bbfa0e4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757)
 
 
 👍 [샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 1TB, 블랙, 1테라 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757) 👌 
@@ -162,7 +162,7 @@ HDD는 데이터가 저장되는 위치가 제각각이기 때문에 조각 모�
 
 ## 8. 샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 2TB, 블랙, 2테라
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/136f/fae19eb5eaad5b931517c5b87a32c0602e2c2156a6f3cec963d435458cc2.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/136f/fae19eb5eaad5b931517c5b87a32c0602e2c2156a6f3cec963d435458cc2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035849&vendorItemId=72881490960)
 
 
 👍 [샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 2TB, 블랙, 2테라 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035849&vendorItemId=72881490960) 👌 
@@ -180,7 +180,7 @@ HDD는 데이터가 저장되는 위치가 제각각이기 때문에 조각 모�
 
 ## 9. PNY CS900 SSD 1TB, 1024GB, SSD7CS900-1TB-RB
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/11/29/17/4/2749e593-170e-484e-987c-672f36402753.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/11/29/17/4/2749e593-170e-484e-987c-672f36402753.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6957086809&traceid=V0-153&itemId=16922767768&vendorItemId=84100604422)
 
 
 👍 [PNY CS900 SSD 1TB, 1024GB, SSD7CS900-1TB-RB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6957086809&traceid=V0-153&itemId=16922767768&vendorItemId=84100604422) 👌 
@@ -198,7 +198,7 @@ HDD는 데이터가 저장되는 위치가 제각각이기 때문에 조각 모�
 
 ## 10. 실리콘파워 SLIM S55 SATA3 SSD 240GB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6aa9/f1816be167ee6873409ca4726a51e178bcb50901dfa686d678e83ffe5ac3.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6aa9/f1816be167ee6873409ca4726a51e178bcb50901dfa686d678e83ffe5ac3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7721267503&traceid=V0-153&itemId=20722933634&vendorItemId=87793714277)
 
 
 👍 [실리콘파워 SLIM S55 SATA3 SSD 240GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7721267503&traceid=V0-153&itemId=20722933634&vendorItemId=87793714277) 👌 

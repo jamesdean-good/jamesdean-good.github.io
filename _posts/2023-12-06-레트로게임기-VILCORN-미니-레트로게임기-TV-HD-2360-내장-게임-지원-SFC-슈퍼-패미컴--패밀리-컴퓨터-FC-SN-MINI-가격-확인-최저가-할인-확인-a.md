@@ -31,7 +31,7 @@ pin: true
 
 ## 1. VILCORN 미니 레트로게임기 TV HD 2360 내장 게임 지원 SFC 슈퍼 패미컴 & 패밀리 컴퓨터 FC, SN MINI
 
-![레트로게임기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7e4d/a17315f0999a5200fdb28d26b3edafa34ea9991c800b4c67da326e6e50f6.jpg)
+[![레트로게임기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7e4d/a17315f0999a5200fdb28d26b3edafa34ea9991c800b4c67da326e6e50f6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7442024368&traceid=V0-153&itemId=19354247315&vendorItemId=86467407865)
 
 
 👍 [VILCORN 미니 레트로게임기 TV HD 2360 내장 게임 지원 SFC 슈퍼 패미컴 & 패밀리 컴퓨터 FC, SN MINI <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7442024368&traceid=V0-153&itemId=19354247315&vendorItemId=86467407865) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. 23년 월광보합 레트로게임기 9800가지, 9800EX, 1개
 
-![레트로게임기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b34b/e03d77613048c4f06577aeec2b3f9827b5ffd7c9977e7d157c6975068866.jpg)
+[![레트로게임기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b34b/e03d77613048c4f06577aeec2b3f9827b5ffd7c9977e7d157c6975068866.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7080115078&traceid=V0-153&itemId=17610017602&vendorItemId=84776107836)
 
 
 👍 [23년 월광보합 레트로게임기 9800가지, 9800EX, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7080115078&traceid=V0-153&itemId=17610017602&vendorItemId=84776107836) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. 노존 한글 최신판 월광보합 레트로게임기 3D 분리형 오락기, MT6 12000종게임
 
-![레트로게임기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ea72/f69c30f4ab913a88c8ef3990d3ef5bba387bf1a85fae75dafafed1a2bb32.jpg)
+[![레트로게임기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ea72/f69c30f4ab913a88c8ef3990d3ef5bba387bf1a85fae75dafafed1a2bb32.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7723219470&traceid=V0-153&itemId=20733235100&vendorItemId=87903515970)
 
 
 👍 [노존 한글 최신판 월광보합 레트로게임기 3D 분리형 오락기, MT6 12000종게임 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7723219470&traceid=V0-153&itemId=20733235100&vendorItemId=87903515970) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 미니 휴대용 비디오 게임 콘솔 SN PRO 내장 6000 빈티지 게임 3.0인치 IPS 화면 휴대용 콘솔, SN PRO 6000
 
-![레트로게임기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9012/4c397e364432f857c95ca91b4852580e1238b6f24786ab1419db0cfbef41.jpg)
+[![레트로게임기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9012/4c397e364432f857c95ca91b4852580e1238b6f24786ab1419db0cfbef41.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7314903240&traceid=V0-153&itemId=18747806050&vendorItemId=85879867626)
 
 
 👍 [미니 휴대용 비디오 게임 콘솔 SN PRO 내장 6000 빈티지 게임 3.0인치 IPS 화면 휴대용 콘솔, SN PRO 6000 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7314903240&traceid=V0-153&itemId=18747806050&vendorItemId=85879867626) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 예스카모 YESKAMO 5.1인치 고화질 PSP 휴대용 레트로 게임기 2인 게임 지원, 블루/레드, YESKAMO X12PRO
 
-![레트로게임기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8dfb/a0ffae50caf28773a91f51abd7e3aeeb030159fee8cfb3136dc7c8888a36.jpg)
+[![레트로게임기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8dfb/a0ffae50caf28773a91f51abd7e3aeeb030159fee8cfb3136dc7c8888a36.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6651767393&traceid=V0-153&itemId=15243454856&vendorItemId=82464207898)
 
 
 👍 [예스카모 YESKAMO 5.1인치 고화질 PSP 휴대용 레트로 게임기 2인 게임 지원, 블루/레드, YESKAMO X12PRO <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6651767393&traceid=V0-153&itemId=15243454856&vendorItemId=82464207898) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. Fiekr 레트로 게임기 미니 게임기 슬림 3.5인치 666 IN 1 고전 게임 2인 사용 가능 연결가능텔레비전, 스카이블루
 
-![레트로게임기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/260b/baa551e3ba7bc83d128eb26cff76443ba714e2a6509d9d30dcbe0addeb2d.png)
+[![레트로게임기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/260b/baa551e3ba7bc83d128eb26cff76443ba714e2a6509d9d30dcbe0addeb2d.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685637659&traceid=V0-153&itemId=20538230348&vendorItemId=87614887274)
 
 
 👍 [Fiekr 레트로 게임기 미니 게임기 슬림 3.5인치 666 IN 1 고전 게임 2인 사용 가능 연결가능텔레비전, 스카이블루 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685637659&traceid=V0-153&itemId=20538230348&vendorItemId=87614887274) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. 초아솔류션 휴대용 레트로 미니 오락실 게임기 8비트 추억의게임 500게임, 블루
 
-![레트로게임기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4f40/de04c2bedb4608ef462bb4759f47cfba43622fbac7d89eacfd265123429a.jpg)
+[![레트로게임기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4f40/de04c2bedb4608ef462bb4759f47cfba43622fbac7d89eacfd265123429a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7363587678&traceid=V0-153&itemId=18977215282&vendorItemId=86216838355)
 
 
 👍 [초아솔류션 휴대용 레트로 미니 오락실 게임기 8비트 추억의게임 500게임, 블루 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7363587678&traceid=V0-153&itemId=18977215282&vendorItemId=86216838355) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. VILCORN 미니 레트로게임기 TV HD 2360 내장 게임 지원 SFC 슈퍼 패미컴 & 패밀리 컴퓨터 FC, SN MINI
 
-![레트로게임기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7e4d/a17315f0999a5200fdb28d26b3edafa34ea9991c800b4c67da326e6e50f6.jpg)
+[![레트로게임기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7e4d/a17315f0999a5200fdb28d26b3edafa34ea9991c800b4c67da326e6e50f6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7442024368&traceid=V0-153&itemId=19354247315&vendorItemId=86467407865)
 
 
 👍 [VILCORN 미니 레트로게임기 TV HD 2360 내장 게임 지원 SFC 슈퍼 패미컴 & 패밀리 컴퓨터 FC, SN MINI <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7442024368&traceid=V0-153&itemId=19354247315&vendorItemId=86467407865) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 월광보합 한글판 WIFI 가정용 레트로 오락실 오락기 게임기, 10000(WIFI O)
 
-![레트로게임기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/a2d5/7844e1a4cf8bb6624699c9f4e54c6aefb4759ce2e3b9fb906fabcbe5b662.png)
+[![레트로게임기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/a2d5/7844e1a4cf8bb6624699c9f4e54c6aefb4759ce2e3b9fb906fabcbe5b662.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6977378773&traceid=V0-153&itemId=17033927432&vendorItemId=84209087855)
 
 
 👍 [월광보합 한글판 WIFI 가정용 레트로 오락실 오락기 게임기, 10000(WIFI O) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6977378773&traceid=V0-153&itemId=17033927432&vendorItemId=84209087855) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 시오니프렌즈 레트로 무선 오락실 게임기 KC충전기 TV HDMI 2인용 20000게임 한글메뉴
 
-![레트로게임기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2fbb/22fb2d33e9d1c940dea5b998561d94f0f9166bf5ff3631dbb1aad5a5269f.jpg)
+[![레트로게임기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2fbb/22fb2d33e9d1c940dea5b998561d94f0f9166bf5ff3631dbb1aad5a5269f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7691720214&traceid=V0-153&itemId=20570607286&vendorItemId=87646066685)
 
 
 👍 [시오니프렌즈 레트로 무선 오락실 게임기 KC충전기 TV HDMI 2인용 20000게임 한글메뉴 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7691720214&traceid=V0-153&itemId=20570607286&vendorItemId=87646066685) 👌 

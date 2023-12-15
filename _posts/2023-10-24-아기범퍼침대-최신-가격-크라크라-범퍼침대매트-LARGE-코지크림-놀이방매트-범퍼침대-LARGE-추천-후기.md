@@ -27,7 +27,7 @@ pin: true
 
 ## 1. 크라크라 범퍼침대매트 LARGE 코지크림 놀이방매트, 범퍼침대 LARGE
 
-![아기범퍼침대 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a752/271d42460c5f6ad721f820e7dcf97031e0d91551bead3b9d358cb7f59e55.jpg)
+[![아기범퍼침대 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a752/271d42460c5f6ad721f820e7dcf97031e0d91551bead3b9d358cb7f59e55.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7533910176&traceid=V0-153&itemId=19788856321&vendorItemId=75360846521)
 
 
 👍 [크라크라 범퍼침대매트 LARGE 코지크림 놀이방매트, 범퍼침대 LARGE <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7533910176&traceid=V0-153&itemId=19788856321&vendorItemId=75360846521) 👌 
@@ -45,7 +45,7 @@ pin: true
 
 ## 2. 맘마키즈폴더 퀼팅 범퍼 매트, 그레이 + 크림
 
-![아기범퍼침대 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/6567015853800-9b4af8e4-6c93-4ac4-a84e-de1078f7ead0.jpg)
+[![아기범퍼침대 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/6567015853800-9b4af8e4-6c93-4ac4-a84e-de1078f7ead0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=141386227&traceid=V0-153&itemId=417817935&vendorItemId=4026583199)
 
 
 👍 [맘마키즈폴더 퀼팅 범퍼 매트, 그레이 + 크림 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=141386227&traceid=V0-153&itemId=417817935&vendorItemId=4026583199) 👌 
@@ -63,7 +63,7 @@ pin: true
 
 ## 3. 맘마키즈폴더 에어리즈 퀼팅 범퍼 침대, 핑크 + 크림
 
-![아기범퍼침대 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1116651575518676-fcb96dfe-f0ec-4173-92fa-127ca3c4515b.png)
+[![아기범퍼침대 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1116651575518676-fcb96dfe-f0ec-4173-92fa-127ca3c4515b.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=141386227&traceid=V0-153&itemId=411729870&vendorItemId=4009746503)
 
 
 👍 [맘마키즈폴더 에어리즈 퀼팅 범퍼 침대, 핑크 + 크림 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=141386227&traceid=V0-153&itemId=411729870&vendorItemId=4009746503) 👌 
@@ -81,7 +81,7 @@ pin: true
 
 ## 4. 도노도노 멀티 범퍼침대 하이라이트, BEIGE
 
-![아기범퍼침대 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/7788859515600059-901ec951-e82e-460f-b65f-0456b17e70f7.jpg)
+[![아기범퍼침대 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/7788859515600059-901ec951-e82e-460f-b65f-0456b17e70f7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6056486748&traceid=V0-153&itemId=11119816507&vendorItemId=78398538564)
 
 
 👍 [도노도노 멀티 범퍼침대 하이라이트, BEIGE <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6056486748&traceid=V0-153&itemId=11119816507&vendorItemId=78398538564) 👌 
@@ -99,7 +99,7 @@ pin: true
 
 ## 5. 아가드 유아용 이지슬라이드 침대 안전가드, 화이트
 
-![아기범퍼침대 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/tci6qlyn/f08cc412c5c3482e9cfb2474fd5fb9da.jpg)
+[![아기범퍼침대 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/tci6qlyn/f08cc412c5c3482e9cfb2474fd5fb9da.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7166621012&traceid=V0-153&itemId=18046319937&vendorItemId=85200535664)
 
 
 👍 [아가드 유아용 이지슬라이드 침대 안전가드, 화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7166621012&traceid=V0-153&itemId=18046319937&vendorItemId=85200535664) 👌 
@@ -117,7 +117,7 @@ pin: true
 
 ## 6. 아가드 이지폴딩 기저귀교환대, 아이보리
 
-![아기범퍼침대 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4904775088962823-bd4d41a1-5700-4a7f-9692-8f3f8a0152d2.jpg)
+[![아기범퍼침대 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4904775088962823-bd4d41a1-5700-4a7f-9692-8f3f8a0152d2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7276503239&traceid=V0-153&itemId=18568985257&vendorItemId=85706201701)
 
 
 👍 [아가드 이지폴딩 기저귀교환대, 아이보리 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7276503239&traceid=V0-153&itemId=18568985257&vendorItemId=85706201701) 👌 
@@ -135,7 +135,7 @@ pin: true
 
 ## 7. 아씨방가구 핸디 베이비 범퍼침대 매트포함, 파스텔화이트
 
-![아기범퍼침대 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/976b/a74b2ea63f1d7e30ca6a95bb7bb6b5f2403dc6344d12539e718f0899e46c.jpg)
+[![아기범퍼침대 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/976b/a74b2ea63f1d7e30ca6a95bb7bb6b5f2403dc6344d12539e718f0899e46c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7063663148&traceid=V0-153&itemId=17521704811&vendorItemId=84688838992)
 
 
 👍 [아씨방가구 핸디 베이비 범퍼침대 매트포함, 파스텔화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7063663148&traceid=V0-153&itemId=17521704811&vendorItemId=84688838992) 👌 
@@ -153,7 +153,7 @@ pin: true
 
 ## 8. 도노도노 유아용 멀티 범퍼침대 하이라이트, 로지베이지
 
-![아기범퍼침대 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/04/07/15/1/57954aaf-b120-4e89-b0cb-7c7a470773b3.jpg)
+[![아기범퍼침대 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/04/07/15/1/57954aaf-b120-4e89-b0cb-7c7a470773b3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6056486748&traceid=V0-153&itemId=18448074779&vendorItemId=85588935459)
 
 
 👍 [도노도노 유아용 멀티 범퍼침대 하이라이트, 로지베이지 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6056486748&traceid=V0-153&itemId=18448074779&vendorItemId=85588935459) 👌 
@@ -171,7 +171,7 @@ pin: true
 
 ## 9. 마롤로뜨 아기침대 범퍼가드 이케아, 내츄럴 아이보리
 
-![아기범퍼침대 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/4wyjzebj/defee32aeb9d4f9182ca01e2ebcf7ae8.jpg)
+[![아기범퍼침대 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/4wyjzebj/defee32aeb9d4f9182ca01e2ebcf7ae8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7027522130&traceid=V0-153&itemId=17331774745&vendorItemId=85390620021)
 
 
 👍 [마롤로뜨 아기침대 범퍼가드 이케아, 내츄럴 아이보리 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7027522130&traceid=V0-153&itemId=17331774745&vendorItemId=85390620021) 👌 
@@ -189,7 +189,7 @@ pin: true
 
 ## 10. 베베끌레르 솔리드 범퍼침대세트(그랜드스페셜size+맞춤형패드), 다크그레이, 아이보리
 
-![아기범퍼침대 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1596/da6757d5f20c0369c56f18c80bc7e4fd08c52da2e2004f7e8104f82600cf.jpg)
+[![아기범퍼침대 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1596/da6757d5f20c0369c56f18c80bc7e4fd08c52da2e2004f7e8104f82600cf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4400645226&traceid=V0-153&itemId=5226754697&vendorItemId=72535835941)
 
 
 👍 [베베끌레르 솔리드 범퍼침대세트(그랜드스페셜size+맞춤형패드), 다크그레이, 아이보리 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4400645226&traceid=V0-153&itemId=5226754697&vendorItemId=72535835941) 👌 

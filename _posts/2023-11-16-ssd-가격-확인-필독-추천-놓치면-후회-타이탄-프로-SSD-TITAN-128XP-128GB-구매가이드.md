@@ -35,7 +35,7 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 ## 1. 타이탄 프로 SSD TITAN 128XP, 128GB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2018/01/29/11/0/81d22799-f303-48be-b412-ed0e5d01b9c6.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2018/01/29/11/0/81d22799-f303-48be-b412-ed0e5d01b9c6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63171192&traceid=V0-153&itemId=215197459&vendorItemId=3518019431)
 
 
 👍 [타이탄 프로 SSD TITAN 128XP, 128GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63171192&traceid=V0-153&itemId=215197459&vendorItemId=3518019431) 👌 
@@ -53,7 +53,7 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 ## 2. 기가바이트 SSD, GP-GSTFS31100TNTD, 1TB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/xbp3faej/4261d7606c7048ce9e483311733336ca.png)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/xbp3faej/4261d7606c7048ce9e483311733336ca.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=9127701173&vendorItemId=76413743812)
 
 
 👍 [기가바이트 SSD, GP-GSTFS31100TNTD, 1TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=9127701173&vendorItemId=76413743812) 👌 
@@ -71,7 +71,7 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 ## 3. SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457) 👌 
@@ -89,7 +89,7 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 ## 4. 샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 2TB, 블랙
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8934/cab407497525303883e55848bb414656e943e6f880a3be5bd522f027f99f.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8934/cab407497525303883e55848bb414656e943e6f880a3be5bd522f027f99f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234)
 
 
 👍 [샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 2TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234) 👌 
@@ -107,7 +107,7 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 ## 5. 마이크론 Crucial P3 Plus M.2 NVMe SSD 2TB 대원씨티에스
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f187/ef1c8f3d18096460dd2c6acc6460c997799f98513c3b21376f9fb3dc2ce7.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f187/ef1c8f3d18096460dd2c6acc6460c997799f98513c3b21376f9fb3dc2ce7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6838183257&traceid=V0-153&itemId=16252863086&vendorItemId=83446015557)
 
 
 👍 [마이크론 Crucial P3 Plus M.2 NVMe SSD 2TB 대원씨티에스 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6838183257&traceid=V0-153&itemId=16252863086&vendorItemId=83446015557) 👌 
@@ -125,7 +125,7 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 ## 6. 중고하드 데스크탑용 SATA HDD 1TB 2TB 3.5인치
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ce22/bf71a1fe0a7389a640b24faa8a39571f09b2323bab4d8caeeb2c520c7bf5.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ce22/bf71a1fe0a7389a640b24faa8a39571f09b2323bab4d8caeeb2c520c7bf5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6608537108&traceid=V0-153&itemId=14974780778&vendorItemId=82197907062)
 
 
 👍 [중고하드 데스크탑용 SATA HDD 1TB 2TB 3.5인치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6608537108&traceid=V0-153&itemId=14974780778&vendorItemId=82197907062) 👌 
@@ -143,7 +143,7 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 ## 7. SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470) 👌 
@@ -161,7 +161,7 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 ## 8. 샌디스크 Portable SSD E30, 1TB, 블랙
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 
 👍 [샌디스크 Portable SSD E30, 1TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486) 👌 
@@ -179,7 +179,7 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 ## 9. 씨게이트 One Touch HDD 외장하드STHP4000402 데이터복구+암호화 기능+파우치+USB케이블, 4TB, 라이트블루
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1050415701232894-8d18889b-6f61-4449-80a7-a652e2d043f3.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1050415701232894-8d18889b-6f61-4449-80a7-a652e2d043f3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=648631446&vendorItemId=4686502604)
 
 
 👍 [씨게이트 One Touch HDD 외장하드STHP4000402 데이터복구+암호화 기능+파우치+USB케이블, 4TB, 라이트블루 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=648631446&vendorItemId=4686502604) 👌 
@@ -197,7 +197,7 @@ HDD는 데이터를 저장할 때 디스크에 임의로 저장되기 때문에 
 
 ## 10. 삼성전자 870 EVO SATA SSD, 500GB, MZ-77E500B/KR
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c8c1/90a10a7394baaa4c43000ee5e7849c570e9409d2b3e220beab5b56a566b2.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c8c1/90a10a7394baaa4c43000ee5e7849c570e9409d2b3e220beab5b56a566b2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=82998196838)
 
 
 👍 [삼성전자 870 EVO SATA SSD, 500GB, MZ-77E500B/KR <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=82998196838) 👌 

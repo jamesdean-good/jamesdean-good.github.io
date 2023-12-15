@@ -29,7 +29,7 @@ pin: true
 
 ## 1. 삼성전자 S22E450F 22형 모니터 FHD 피봇 Pivot HDMI DVI 지원 주식 사무용 가정용 모니터
 
-![삼성모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e63b/3fae9dabbc7cd1aa726102c8ae21ca937165c7f4df9b27d9a2531e615110.jpg)
+[![삼성모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e63b/3fae9dabbc7cd1aa726102c8ae21ca937165c7f4df9b27d9a2531e615110.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7661827067&traceid=V0-153&itemId=20414856690&vendorItemId=87496700778)
 
 
 👍 [삼성전자 S22E450F 22형 모니터 FHD 피봇 Pivot HDMI DVI 지원 주식 사무용 가정용 모니터 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7661827067&traceid=V0-153&itemId=20414856690&vendorItemId=87496700778) 👌 
@@ -47,7 +47,7 @@ pin: true
 
 ## 2. 삼성전자 S24R35A LS24R35AFHKXKR 60.96cm 컴퓨터 모니터
 
-![삼성모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b466/dfeb1242e16f16c4480901fb7d4f568d2a07c8898ee27e308a80b0c4ba3e.jpg)
+[![삼성모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b466/dfeb1242e16f16c4480901fb7d4f568d2a07c8898ee27e308a80b0c4ba3e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6468232654&traceid=V0-153&itemId=14107738225&vendorItemId=86829627118)
 
 
 👍 [삼성전자 S24R35A LS24R35AFHKXKR 60.96cm 컴퓨터 모니터 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6468232654&traceid=V0-153&itemId=14107738225&vendorItemId=86829627118) 👌 
@@ -65,7 +65,7 @@ pin: true
 
 ## 3. LG전자 PC모니터, 24MQ400C
 
-![삼성모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4013224391974847-a278c950-c718-4a62-a546-393b400d7194.jpg)
+[![삼성모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4013224391974847-a278c950-c718-4a62-a546-393b400d7194.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7093864750&traceid=V0-153&itemId=17685982372&vendorItemId=84851123428)
 
 
 👍 [LG전자 PC모니터, 24MQ400C <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7093864750&traceid=V0-153&itemId=17685982372&vendorItemId=84851123428) 👌 
@@ -83,7 +83,7 @@ pin: true
 
 ## 4. 삼성전자 68.5 cm Full-HD 커브드 모니터, LC27F390FHKXKR
 
-![삼성모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0ccf/b33876008b0f231e9366e6fe32170212cf71f7ba29710c808dd60e5b73bb.jpg)
+[![삼성모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0ccf/b33876008b0f231e9366e6fe32170212cf71f7ba29710c808dd60e5b73bb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6861954&traceid=V0-153&itemId=30349866&vendorItemId=72519044899)
 
 
 👍 [삼성전자 68.5 cm Full-HD 커브드 모니터, LC27F390FHKXKR <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6861954&traceid=V0-153&itemId=30349866&vendorItemId=72519044899) 👌 
@@ -101,7 +101,7 @@ pin: true
 
 ## 5. [파격특가] LG 삼성 LED 중고 모니터 20 22 23 24인치, 삼성/LG 22인치 LED
 
-![삼성모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1b1e/ca6fdc1712529c66bd66e39d482765e828b089228ef2cef62a386fe256e2.jpg)
+[![삼성모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1b1e/ca6fdc1712529c66bd66e39d482765e828b089228ef2cef62a386fe256e2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7419576897&traceid=V0-153&itemId=19243746921&vendorItemId=87436776716)
 
 
 👍 [[파격특가] LG 삼성 LED 중고 모니터 20 22 23 24인치, 삼성/LG 22인치 LED <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7419576897&traceid=V0-153&itemId=19243746921&vendorItemId=87436776716) 👌 
@@ -119,7 +119,7 @@ pin: true
 
 ## 6. 삼성LG 중소브랜드 중고모니터 파격, 23인치 LED와이드 (삼성LG)
 
-![삼성모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6853/575593213ac57e0d0068cbac1f052e5683c034ac9c6af024191d1930431d.png)
+[![삼성모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6853/575593213ac57e0d0068cbac1f052e5683c034ac9c6af024191d1930431d.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6872552561&traceid=V0-153&itemId=16445783576&vendorItemId=85136636359)
 
 
 👍 [삼성LG 중소브랜드 중고모니터 파격, 23인치 LED와이드 (삼성LG) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6872552561&traceid=V0-153&itemId=16445783576&vendorItemId=85136636359) 👌 
@@ -137,7 +137,7 @@ pin: true
 
 ## 7. 삼성전자 80.1cm 75Hz 인피니티 디자인 커브드 모니터, LC32R500FHKXKR
 
-![삼성모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f7fe/375656653b499f34343521e965c5087635a946f3fcbc17a3016d3b757683.jpg)
+[![삼성모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f7fe/375656653b499f34343521e965c5087635a946f3fcbc17a3016d3b757683.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1473852621&traceid=V0-153&itemId=2533012619&vendorItemId=78320817921)
 
 
 👍 [삼성전자 80.1cm 75Hz 인피니티 디자인 커브드 모니터, LC32R500FHKXKR <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1473852621&traceid=V0-153&itemId=2533012619&vendorItemId=78320817921) 👌 
@@ -155,7 +155,7 @@ pin: true
 
 ## 8. 삼성전자 60.4cm LED 슬림베젤 모니터, LF24T350FHKXKR
 
-![삼성모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f5c3/91598a8e4424a5922ee92366a97940055928018b6ae50c7c3340a30f5921.jpg)
+[![삼성모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f5c3/91598a8e4424a5922ee92366a97940055928018b6ae50c7c3340a30f5921.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2046402928&traceid=V0-153&itemId=3478995373&vendorItemId=87489305164)
 
 
 👍 [삼성전자 60.4cm LED 슬림베젤 모니터, LF24T350FHKXKR <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2046402928&traceid=V0-153&itemId=3478995373&vendorItemId=87489305164) 👌 
@@ -173,7 +173,7 @@ pin: true
 
 ## 9. 모니터 삼성 엘지 특가판매 LED LCD 19인치부터 27인치까지, 삼성/LG24인치LED와이드
 
-![삼성모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e1b4/1fae31f09c4aeac5fece166abb6b7ef3439af0d19b0ceac8e45dea929266.png)
+[![삼성모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e1b4/1fae31f09c4aeac5fece166abb6b7ef3439af0d19b0ceac8e45dea929266.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7075618739&traceid=V0-153&itemId=17585436500&vendorItemId=84751976110)
 
 
 👍 [모니터 삼성 엘지 특가판매 LED LCD 19인치부터 27인치까지, 삼성/LG24인치LED와이드 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7075618739&traceid=V0-153&itemId=17585436500&vendorItemId=84751976110) 👌 
@@ -191,7 +191,7 @@ pin: true
 
 ## 10. 삼성전자 68.6cm IPS패널 LED모니터, LF27T350FHKXKR
 
-![삼성모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3eb1/95a987a102f12725938a4a6f3e04029e938676d12009bc2648eb8cf63e7e.jpg)
+[![삼성모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3eb1/95a987a102f12725938a4a6f3e04029e938676d12009bc2648eb8cf63e7e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2068246833&traceid=V0-153&itemId=3514362138&vendorItemId=77431252298)
 
 
 👍 [삼성전자 68.6cm IPS패널 LED모니터, LF27T350FHKXKR <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2068246833&traceid=V0-153&itemId=3514362138&vendorItemId=77431252298) 👌 

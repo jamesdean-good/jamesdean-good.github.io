@@ -27,7 +27,7 @@ pin: true
 
 ## 1. 홍콩Mack Kevin리얼 가죽 셔링백 여성 시크 체인백 크로스 스몰 숄더백
 
-![샤넬가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4e07/16a1f5dcb4fbb6a9846425942ccae3e2d74a30c17940084bff7c7e905eba.jpg)
+[![샤넬가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4e07/16a1f5dcb4fbb6a9846425942ccae3e2d74a30c17940084bff7c7e905eba.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6498327891&traceid=V0-153&itemId=14295589666&vendorItemId=83729045796)
 
 
 👍 [홍콩Mack Kevin리얼 가죽 셔링백 여성 시크 체인백 크로스 스몰 숄더백 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6498327891&traceid=V0-153&itemId=14295589666&vendorItemId=83729045796) 👌 
@@ -45,7 +45,7 @@ pin: true
 
 ## 2. ANYOU 구미 패션 체인 크로스 겸 대용량 토트백 자라가방
 
-![샤넬가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2f19/66efb9d7ca12ad608ab80f52932458172ce7a676690ea65df5b46713b389.jpg)
+[![샤넬가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2f19/66efb9d7ca12ad608ab80f52932458172ce7a676690ea65df5b46713b389.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7419705474&traceid=V0-153&itemId=19244290283&vendorItemId=86626491769)
 
 
 👍 [ANYOU 구미 패션 체인 크로스 겸 대용량 토트백 자라가방 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7419705474&traceid=V0-153&itemId=19244290283&vendorItemId=86626491769) 👌 
@@ -63,7 +63,7 @@ pin: true
 
 ## 3. FANSYLI 여성 큐빅 보석 크로스백숄더백 토트백 XX4A21
 
-![샤넬가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3efc/47f9e485042d7f00a19b1c9c6dd41a9608f6c0a92ff503f3cb306561e295.jpg)
+[![샤넬가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3efc/47f9e485042d7f00a19b1c9c6dd41a9608f6c0a92ff503f3cb306561e295.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7290727132&traceid=V0-153&itemId=18633586748&vendorItemId=85768834237)
 
 
 👍 [FANSYLI 여성 큐빅 보석 크로스백숄더백 토트백 XX4A21 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7290727132&traceid=V0-153&itemId=18633586748&vendorItemId=85768834237) 👌 
@@ -81,7 +81,7 @@ pin: true
 
 ## 4. [당일발송] 19백 미듐스몰(26cm) 제니백 명품 이너백 백인백 샤넬 나인틴백 AS1160 맞춤
 
-![샤넬가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a59d/6c528e3c14a0acfea4bd26947eeabee17995add82878bad26bc959d2b246.png)
+[![샤넬가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a59d/6c528e3c14a0acfea4bd26947eeabee17995add82878bad26bc959d2b246.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6908540030&traceid=V0-153&itemId=16641162346&vendorItemId=83825317706)
 
 
 👍 [[당일발송] 19백 미듐스몰(26cm) 제니백 명품 이너백 백인백 샤넬 나인틴백 AS1160 맞춤 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6908540030&traceid=V0-153&itemId=16641162346&vendorItemId=83825317706) 👌 
@@ -117,7 +117,7 @@ pin: true
 
 ## 6. 모어공감 가벼운 구름 숄더백
 
-![샤넬가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/20da/9ff78a07f67d9b97e14dc10dd3e6d3ea2d619e1812e78a2232dd8f50c27e.jpg)
+[![샤넬가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/20da/9ff78a07f67d9b97e14dc10dd3e6d3ea2d619e1812e78a2232dd8f50c27e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7190642627&traceid=V0-153&itemId=18154277649&vendorItemId=85379025186)
 
 
 👍 [모어공감 가벼운 구름 숄더백 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7190642627&traceid=V0-153&itemId=18154277649&vendorItemId=85379025186) 👌 
@@ -135,7 +135,7 @@ pin: true
 
 ## 7. 여성 큐빅 핸드폰 크로스백 블링블링 미니 가방 선물
 
-![샤넬가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2686/d1e65588cce1ea4f98a279fa9d629e74607a08cfcc7bacfc7ad6ffe57575.png)
+[![샤넬가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2686/d1e65588cce1ea4f98a279fa9d629e74607a08cfcc7bacfc7ad6ffe57575.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7431577284&traceid=V0-153&itemId=19303063557&vendorItemId=86417492257)
 
 
 👍 [여성 큐빅 핸드폰 크로스백 블링블링 미니 가방 선물 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7431577284&traceid=V0-153&itemId=19303063557&vendorItemId=86417492257) 👌 
@@ -153,7 +153,7 @@ pin: true
 
 ## 8. 샤넬22 스몰(AS3260) /미듐 (AS3261) 이너백
 
-![샤넬가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4437/f66e1e7e708c057428479e08389152024e0d0f320459a3a4dee042cce252.jpeg)
+[![샤넬가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4437/f66e1e7e708c057428479e08389152024e0d0f320459a3a4dee042cce252.jpeg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6851575648&traceid=V0-153&itemId=16323846564&vendorItemId=83515873869)
 
 
 👍 [샤넬22 스몰(AS3260) /미듐 (AS3261) 이너백 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6851575648&traceid=V0-153&itemId=16323846564&vendorItemId=83515873869) 👌 
@@ -171,7 +171,7 @@ pin: true
 
 ## 9. 제이두두 여성크로스백 데일리백 가죽 미니핸드백 JD11
 
-![샤넬가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9fce/1f2c88e49e75a1a7a7b45bde5a1a4ad9b1c505dcbb69ce6b364d30c96a8d.jpg)
+[![샤넬가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9fce/1f2c88e49e75a1a7a7b45bde5a1a4ad9b1c505dcbb69ce6b364d30c96a8d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7200776442&traceid=V0-153&itemId=18201189669&vendorItemId=85649018048)
 
 
 👍 [제이두두 여성크로스백 데일리백 가죽 미니핸드백 JD11 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7200776442&traceid=V0-153&itemId=18201189669&vendorItemId=85649018048) 👌 
@@ -189,7 +189,7 @@ pin: true
 
 ## 10. 엠보싱 숄더 쇼퍼백 이너 파우치 세트 HB011
 
-![샤넬가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a2a0/9f548f2781bf0323f66e58867ee1e97fac86c6111d03fcaf3c20fdeeb875.jpg)
+[![샤넬가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a2a0/9f548f2781bf0323f66e58867ee1e97fac86c6111d03fcaf3c20fdeeb875.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6996820481&traceid=V0-153&itemId=17144428622&vendorItemId=84317226283)
 
 
 👍 [엠보싱 숄더 쇼퍼백 이너 파우치 세트 HB011 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6996820481&traceid=V0-153&itemId=17144428622&vendorItemId=84317226283) 👌 

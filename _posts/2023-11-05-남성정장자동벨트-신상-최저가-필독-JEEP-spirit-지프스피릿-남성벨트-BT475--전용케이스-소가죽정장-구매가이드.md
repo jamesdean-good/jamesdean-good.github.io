@@ -31,7 +31,7 @@ pin: true
 
 ## 1. JEEP spirit (지프스피릿) 남성벨트 BT-475 + 전용케이스 소가죽정장
 
-![남성정장자동벨트 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/55d0/5e45902b03812086f641f075b8544071a7eef0b8790c7de514314d2323cb.jpg)
+[![남성정장자동벨트 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/55d0/5e45902b03812086f641f075b8544071a7eef0b8790c7de514314d2323cb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6643474365&traceid=V0-153&itemId=15195581257&vendorItemId=85831850177)
 
 
 👍 [JEEP spirit (지프스피릿) 남성벨트 BT-475 + 전용케이스 소가죽정장 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6643474365&traceid=V0-153&itemId=15195581257&vendorItemId=85831850177) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. 블랑플뢰르 소가죽 남성 정장벨트 BA1330020N2
 
-![남성정장자동벨트 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4426399535265499-7aaeeafa-ca22-4d88-9437-67c7dceea4eb.jpg)
+[![남성정장자동벨트 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4426399535265499-7aaeeafa-ca22-4d88-9437-67c7dceea4eb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4610840516&traceid=V0-153&itemId=5699215904&vendorItemId=72998028449)
 
 
 👍 [블랑플뢰르 소가죽 남성 정장벨트 BA1330020N2 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4610840516&traceid=V0-153&itemId=5699215904&vendorItemId=72998028449) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. 블랑플뢰르 캐주얼 정장 자동벨트 01 민자 캐주얼
 
-![남성정장자동벨트 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/a89mcig2/474f2c7310aa44e090b6656247a9f680.jpg)
+[![남성정장자동벨트 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/a89mcig2/474f2c7310aa44e090b6656247a9f680.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7305933467&traceid=V0-153&itemId=18705883745&vendorItemId=85839226563)
 
 
 👍 [블랑플뢰르 캐주얼 정장 자동벨트 01 민자 캐주얼 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7305933467&traceid=V0-153&itemId=18705883745&vendorItemId=85839226563) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 가파치 남성 자동 정장 가죽벨트 CA-BELT7616
 
-![남성정장자동벨트 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2019/08/13/12/2/e22bc20f-9db8-47de-90ea-7ca18fbaae36.jpg)
+[![남성정장자동벨트 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2019/08/13/12/2/e22bc20f-9db8-47de-90ea-7ca18fbaae36.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=270192953&traceid=V0-153&itemId=848410223&vendorItemId=5245513655)
 
 
 👍 [가파치 남성 자동 정장 가죽벨트 CA-BELT7616 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=270192953&traceid=V0-153&itemId=848410223&vendorItemId=5245513655) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 희미다올 남자벨트 천연가죽 튼튼한 자동 버클 허리띠
 
-![남성정장자동벨트 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5267/07827745a221c542ad26f5a40f148893fdfc34251cd6012b33d8cb610dc6.png)
+[![남성정장자동벨트 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5267/07827745a221c542ad26f5a40f148893fdfc34251cd6012b33d8cb610dc6.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7469535237&traceid=V0-153&itemId=19487799966&vendorItemId=86881595402)
 
 
 👍 [희미다올 남자벨트 천연가죽 튼튼한 자동 버클 허리띠 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7469535237&traceid=V0-153&itemId=19487799966&vendorItemId=86881595402) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 바닐라문 소가죽 정장벨트
 
-![남성정장자동벨트 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7f6c/5ae50ce141d6bdca41000147941bf213af4b86a52e5793c0e49a20cfa40f.jpg)
+[![남성정장자동벨트 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7f6c/5ae50ce141d6bdca41000147941bf213af4b86a52e5793c0e49a20cfa40f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7010233835&traceid=V0-153&itemId=17223801150&vendorItemId=84395589458)
 
 
 👍 [바닐라문 소가죽 정장벨트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7010233835&traceid=V0-153&itemId=17223801150&vendorItemId=84395589458) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. 캐럿 남성용 캐주얼 자동 버클 정장 벨트
 
-![남성정장자동벨트 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5142744270042195-799b22a5-d657-4d6a-9b31-3eda57bfa24f.jpg)
+[![남성정장자동벨트 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5142744270042195-799b22a5-d657-4d6a-9b31-3eda57bfa24f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6636787621&traceid=V0-153&itemId=15154715569&vendorItemId=82376191632)
 
 
 👍 [캐럿 남성용 캐주얼 자동 버클 정장 벨트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6636787621&traceid=V0-153&itemId=15154715569&vendorItemId=82376191632) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 가파치 가죽 자동 정장벨트 CPZ-BPC
 
-![남성정장자동벨트 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/06/12/18/1/b39dde7d-6c1e-4a2a-888c-b99a891c2539.jpg)
+[![남성정장자동벨트 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/06/12/18/1/b39dde7d-6c1e-4a2a-888c-b99a891c2539.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1707225696&traceid=V0-153&itemId=2905512441&vendorItemId=70894388827)
 
 
 👍 [가파치 가죽 자동 정장벨트 CPZ-BPC <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1707225696&traceid=V0-153&itemId=2905512441&vendorItemId=70894388827) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. JEEPSPIRIT 남성용 가죽 자동 버클 벨트 OM18CD996BT0475 + 벨트박스
 
-![남성정장자동벨트 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/08a6/55cfc68a560a0da23289e001724fc7506974022c4dd7a5f0d00d60e2f06d.jpg)
+[![남성정장자동벨트 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/08a6/55cfc68a560a0da23289e001724fc7506974022c4dd7a5f0d00d60e2f06d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6711291348&traceid=V0-153&itemId=15581792131&vendorItemId=82800844916)
 
 
 👍 [JEEPSPIRIT 남성용 가죽 자동 버클 벨트 OM18CD996BT0475 + 벨트박스 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6711291348&traceid=V0-153&itemId=15581792131&vendorItemId=82800844916) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 블랑플뢰르 남성용 캐주얼 정장벨트
 
-![남성정장자동벨트 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2019/11/21/12/8/87ebd5a0-ed61-4787-b2fd-a05af1ba98eb.jpg)
+[![남성정장자동벨트 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2019/11/21/12/8/87ebd5a0-ed61-4787-b2fd-a05af1ba98eb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=343490373&traceid=V0-153&itemId=1091467635&vendorItemId=5605533989)
 
 
 👍 [블랑플뢰르 남성용 캐주얼 정장벨트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=343490373&traceid=V0-153&itemId=1091467635&vendorItemId=5605533989) 👌 

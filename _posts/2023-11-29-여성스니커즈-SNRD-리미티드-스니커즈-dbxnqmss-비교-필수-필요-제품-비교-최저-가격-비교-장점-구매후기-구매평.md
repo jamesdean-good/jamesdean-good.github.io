@@ -41,7 +41,7 @@ pin: true
 
 ## 1. SNRD 리미티드 스니커즈
 
-![여성스니커즈 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2019/06/25/14/9/2fc9eb15-5505-4a89-84cf-7c6ead043270.jpg)
+[![여성스니커즈 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2019/06/25/14/9/2fc9eb15-5505-4a89-84cf-7c6ead043270.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=246288846&traceid=V0-153&itemId=780348286&vendorItemId=4971303668)
 
 
 👍 [SNRD 리미티드 스니커즈 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=246288846&traceid=V0-153&itemId=780348286&vendorItemId=4971303668) 👌 
@@ -59,7 +59,7 @@ pin: true
 
 ## 2. 에스콰이아 여성 별포인트 스니커즈 2종택1 CFHL906 908
 
-![여성스니커즈 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/448c/77d689b3a490ae23d5cb02c104acc02d9157aeac21ba395ccb9d622bad00.jpg)
+[![여성스니커즈 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/448c/77d689b3a490ae23d5cb02c104acc02d9157aeac21ba395ccb9d622bad00.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7539528803&traceid=V0-153&itemId=19816150723&vendorItemId=86918189189)
 
 
 👍 [에스콰이아 여성 별포인트 스니커즈 2종택1 CFHL906 908 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7539528803&traceid=V0-153&itemId=19816150723&vendorItemId=86918189189) 👌 
@@ -77,7 +77,7 @@ pin: true
 
 ## 3. ANYOU 여성용 통기성 일상생활 초경량 운동화 배색 심플 발편한 스니커즈
 
-![여성스니커즈 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9b5d/510d57d3c5f41d9314c82eff52300dbcb2249b3ee79f59ea71a8eef1e061.jpg)
+[![여성스니커즈 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9b5d/510d57d3c5f41d9314c82eff52300dbcb2249b3ee79f59ea71a8eef1e061.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7578512733&traceid=V0-153&itemId=20000955668&vendorItemId=87803481315)
 
 
 👍 [ANYOU 여성용 통기성 일상생활 초경량 운동화 배색 심플 발편한 스니커즈 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7578512733&traceid=V0-153&itemId=20000955668&vendorItemId=87803481315) 👌 
@@ -95,7 +95,7 @@ pin: true
 
 ## 4. 엘칸토 마쯔 여성 배색 밴딩 스니커즈 3cm LCWS07M126
 
-![여성스니커즈 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/206e/aa0c6d6da9558b3a42f2e2e50fe74acca3b5527ca161003b9caac64ca67e.jpg)
+[![여성스니커즈 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/206e/aa0c6d6da9558b3a42f2e2e50fe74acca3b5527ca161003b9caac64ca67e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5024782702&traceid=V0-153&itemId=6742402922&vendorItemId=74035305979)
 
 
 👍 [엘칸토 마쯔 여성 배색 밴딩 스니커즈 3cm LCWS07M126 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5024782702&traceid=V0-153&itemId=6742402922&vendorItemId=74035305979) 👌 
@@ -113,7 +113,7 @@ pin: true
 
 ## 5. SNRD 남녀공용 커플 캔버스 스니커즈 SN152
 
-![여성스니커즈 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2018/12/10/3855915655/339dac4b-1305-440f-ba2f-b24c7cc23e7c.jpg)
+[![여성스니커즈 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2018/12/10/3855915655/339dac4b-1305-440f-ba2f-b24c7cc23e7c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=305778611&traceid=V0-153&itemId=963896204&vendorItemId=3855915655)
 
 
 👍 [SNRD 남녀공용 커플 캔버스 스니커즈 SN152 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=305778611&traceid=V0-153&itemId=963896204&vendorItemId=3855915655) 👌 
@@ -131,7 +131,7 @@ pin: true
 
 ## 6. SNRD 리미티드 스니커즈
 
-![여성스니커즈 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2019/06/25/14/6/1d3b5bdd-031f-4e93-834f-ec83a5599d8d.jpg)
+[![여성스니커즈 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2019/06/25/14/6/1d3b5bdd-031f-4e93-834f-ec83a5599d8d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=246288846&traceid=V0-153&itemId=720188573&vendorItemId=4971305991)
 
 
 👍 [SNRD 리미티드 스니커즈 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=246288846&traceid=V0-153&itemId=720188573&vendorItemId=4971305991) 👌 
@@ -149,7 +149,7 @@ pin: true
 
 ## 7. ANYOU 초경량 운동화 최신형 런닝화 여성트레킹화 여자운동화 여성스니커즈 여성운동화
 
-![여성스니커즈 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6fe9/f5cae0fdd5affbe00bd4134e808e55701434b43c57f82c2edd4ff9522284.png)
+[![여성스니커즈 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6fe9/f5cae0fdd5affbe00bd4134e808e55701434b43c57f82c2edd4ff9522284.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7014984181&traceid=V0-153&itemId=17253064498&vendorItemId=86100557577)
 
 
 👍 [ANYOU 초경량 운동화 최신형 런닝화 여성트레킹화 여자운동화 여성스니커즈 여성운동화 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7014984181&traceid=V0-153&itemId=17253064498&vendorItemId=86100557577) 👌 
@@ -167,7 +167,7 @@ pin: true
 
 ## 8. ANYOU 여성용 통굽 스니커즈 캔버스 운동화
 
-![여성스니커즈 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/388f/541ec65672f8a1488e54868647e1bf08a5c3900211cba3032a1df6e646cb.jpg)
+[![여성스니커즈 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/388f/541ec65672f8a1488e54868647e1bf08a5c3900211cba3032a1df6e646cb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7503888354&traceid=V0-153&itemId=19647641756&vendorItemId=87185036149)
 
 
 👍 [ANYOU 여성용 통굽 스니커즈 캔버스 운동화 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7503888354&traceid=V0-153&itemId=19647641756&vendorItemId=87185036149) 👌 
@@ -185,7 +185,7 @@ pin: true
 
 ## 9. SNRD 남녀공용 커플 캔버스 스니커즈 SN152
 
-![여성스니커즈 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4455479171634103-cc121295-671b-4ed4-bf80-b04034753067.jpg)
+[![여성스니커즈 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4455479171634103-cc121295-671b-4ed4-bf80-b04034753067.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=305778611&traceid=V0-153&itemId=963896150&vendorItemId=3855915729)
 
 
 👍 [SNRD 남녀공용 커플 캔버스 스니커즈 SN152 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=305778611&traceid=V0-153&itemId=963896150&vendorItemId=3855915729) 👌 
@@ -203,7 +203,7 @@ pin: true
 
 ## 10. 여성스니커즈 가죽 운동화 3.5cm 키높이 단화 WAAW 퓨리티
 
-![여성스니커즈 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/aa63/611c310d9d94fa5ab6d271cc9713a466fe420873d9295f7759540cc8e5a9.jpg)
+[![여성스니커즈 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/aa63/611c310d9d94fa5ab6d271cc9713a466fe420873d9295f7759540cc8e5a9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7402209618&traceid=V0-153&itemId=19161794506&vendorItemId=78444692323)
 
 
 👍 [여성스니커즈 가죽 운동화 3.5cm 키높이 단화 WAAW 퓨리티 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7402209618&traceid=V0-153&itemId=19161794506&vendorItemId=78444692323) 👌 
